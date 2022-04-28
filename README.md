@@ -1,0 +1,1887 @@
+# Quotes (1885)
+
+- `A. A. Milne` - If you live to be a hundred, I want to live to be a hundred minus one day, so I never have to live without you.
+- `A. A. Milne` - One of the advantages of being disorderly is that one is constantly making exciting discoveries.
+- `A. P. J. Abdul Kalam` - Let us sacrifice our today so that our children can have a better tomorrow.
+- `A. P. J. Abdul Kalam` - We should not give up and we should not allow the problem to defeat us.
+- `A. Powell Davies` - Life is just a chance to grow a soul.
+- `A. Powell Davies` - When a friend is in trouble, don't annoy him by asking if there is anything you can do. Think up something appropriate and do it.
+- `Abigail Adams` - Wisdom and penetration are the fruit of experience, not the lessons of retirement and leisure. Great necessities call out great virtues.
+- `Abraham Lincoln` - A house divided against itself cannot stand.
+- `Abraham Lincoln` - Always bear in mind that your own resolution to succeed is more important than any one thing.
+- `Abraham Lincoln` - Be sure you put your feet in the right place, then stand firm.
+- `Abraham Lincoln` - Character is like a tree and reputation like a shadow. The shadow is what we think of it; the tree is the real thing.
+- `Abraham Lincoln` - Give me six hours to chop down a tree and I will spend the first four sharpening the axe.
+- `Abraham Lincoln` - I destroy my enemies when I make them my friends.
+- `Abraham Lincoln` - I walk slowly, but I never walk backward.
+- `Abraham Lincoln` - I will prepare and someday my chance will come.
+- `Abraham Lincoln` - I'll prepare and someday my chance will come.
+- `Abraham Lincoln` - Important principles may, and must, be inflexible.
+- `Abraham Lincoln` - Most people are about as happy as they make up their minds to be
+- `Abraham Lincoln` - The best thing about the future is that it only comes one day at a time.
+- `Abraham Lincoln` - Truth is generally the best vindication against slander.
+- `Abraham Lincoln` - When you have got an elephant by the hind legs and he is trying to run away, it's best to let him run.
+- `Abraham Lincoln` - You have to do your own growing no matter how tall your grandfather was.
+- `Abraham Maslow` - If you only have a hammer, you tend to see every problem as a nail.
+- `Abraham Maslow` - What is necessary to change a person is to change his awareness of himself.
+- `Aeschylus` - He who learns must suffer. And even in our sleep pain that cannot forget falls drop by drop upon the heart, and in our own despair, against our will, comes wisdom to us by the awful grace of God.
+- `Aeschylus` - It is good even for old men to learn wisdom.
+- `Aeschylus` - Wisdom comes alone through suffering.
+- `Aesop` - Appearances are often deceiving.
+- `Aesop` - No act of kindness, no matter how small, is ever wasted.
+- `Afrika Bambaataa` - The Universal Zulu Nation stands to acknowledge wisdom, understanding, freedom, justice, and equality, peace, unity, love, and having fun, work, overcoming the negative through the positive, science, mathematics, faith, facts, and the wonders of God, whether we call him Allah, Jehovah, Yahweh, or Jah.
+- `Agatha Christie` - Good advice is always certain to be ignored, but that's no reason not to give it.
+- `Akhenaten` - True wisdom is less presuming than folly. The wise man doubteth often, and changeth his mind; the fool is obstinate, and doubteth not; he knoweth all things but his own ignorance.
+- `Alan Cohen` - Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.
+- `Alan Watts` - No valid plans for the future can be made by those who have no capacity for living now.
+- `Albert Camus` - All men have a sweetness in their life. That is what helps them go on. It is towards that they turn when they feel too worn out.
+- `Albert Camus` - Autumn is a second spring when every leaf is a flower.
+- `Albert Camus` - Blessed are the hearts that can bend; they shall never be broken.
+- `Albert Camus` - Friendship often ends in love, but love in friendship - never.
+- `Albert Camus` - In the depth of winter, I finally learned that there was within me an invincible summer.
+- `Albert Camus` - You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
+- `Albert Einstein` - A man should look for what is, and not for what he thinks should be.
+- `Albert Einstein` - A person who never made a mistake never tried anything new.
+- `Albert Einstein` - Anyone who doesn't take truth seriously in small matters cannot be trusted in large ones either.
+- `Albert Einstein` - Feeling and longing are the motive forces behind all human endeavor and human creations.
+- `Albert Einstein` - God always takes the simplest way.
+- `Albert Einstein` - Great ideas often receive violent opposition from mediocre minds.
+- `Albert Einstein` - I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
+- `Albert Einstein` - I have no special talent. I am only passionately curious.
+- `Albert Einstein` - I never think of the future. It comes soon enough.
+- `Albert Einstein` - If A is success in life, then A equals x plus y plus z. Work is x; y is play; and z is keeping your mouth shut.
+- `Albert Einstein` - If you can't explain it simply, you don't understand it well enough.
+- `Albert Einstein` - Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.
+- `Albert Einstein` - In the middle of every difficulty lies opportunity.
+- `Albert Einstein` - It has become appallingly obvious that our technology has exceeded our humanity.
+- `Albert Einstein` - Learn from yesterday, live for today, hope for tomorrow.
+- `Albert Einstein` - Life is like riding a bicycle. To keep your balance you must keep moving.
+- `Albert Einstein` - Logic will get you from A to B. Imagination will take you everywhere.
+- `Albert Einstein` - Once we accept our limits, we go beyond them.
+- `Albert Einstein` - One may say the eternal mystery of the world is its comprehensibility.
+- `Albert Einstein` - Peace cannot be kept by force. It can only be achieved by understanding.
+- `Albert Einstein` - Reality is merely an illusion, albeit a very persistent one.
+- `Albert Einstein` - Setting an example is not the main means of influencing another, it is the only means.
+- `Albert Einstein` - The attempt to combine wisdom and power has only rarely been successful and then only for a short while.
+- `Albert Einstein` - The human spirit must prevail over technology.
+- `Albert Einstein` - The only real valuable thing is intuition.
+- `Albert Einstein` - There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+- `Albert Einstein` - Try not to become a man of success, but rather try to become a man of value.
+- `Albert Einstein` - We cannot solve our problems with the same thinking we used when we created them.
+- `Albert Einstein` - When the solution is simple, God is answering.
+- `Albert Einstein` - You can't blame gravity for falling in love.
+- `Albert Schweitzer` - An optimist is a person who sees a green light everywhere, while the pessimist sees only the red spotlight... The truly wise person is color-blind.
+- `Albert Schweitzer` - Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate.
+- `Albert Schweitzer` - Do something wonderful, people may imitate it.
+- `Albert Schweitzer` - Never say there is nothing beautiful in the world anymore. There is always something to make you wonder in the shape of a tree, the trembling of a leaf.
+- `Albert Schweitzer` - One who gains strength by overcoming obstacles possesses the only strength which can overcome adversity.
+- `Albert Schweitzer` - Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful.
+- `Albert Schweitzer` - We should all be thankful for those people who rekindle the inner spirit.
+- `Albert Schweitzer` - Wherever a man turns he can find someone who needs him.
+- `Aldous Huxley` - Experience is not what happens to a man. It is what a man does with what happens to him.
+- `Aldous Huxley` - Experience is not what happens to you; it's what you do with what happens to you.
+- `Aldous Huxley` - Technological progress has merely provided us with more efficient means for going backwards.
+- `Aldous Huxley` - There is only one corner of the universe you can be certain of improving, and that's your own self.
+- `Alexander Chalmers` - The grand essentials of happiness are: something to do, something to love, and something to hope for.
+- `Alexander Pope` - Blessed is the man who expects nothing, for he shall never be disappointed.
+- `Alexander Pope` - Do good by stealth, and blush to find it fame.
+- `Alexander Pope` - Never find fault with the absent.
+- `Alexander the Great` - There is nothing impossible to him who will try.
+- `Alexandre Dumas` - All human wisdom is summed up in two words; wait and hope.
+- `Alexis Carrel` - All great men are gifted with intuition. They know without reasoning or analysis, what they need to know.
+- `Alfred Adler` - Trust only movement. Life happens at the level of events, not of words. Trust movement.
+- `Alfred Korzybski` - There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
+- `Alfred North Whitehead` - The art of progress is to preserve order amid change, and to preserve change amid order.
+- `Alfred Tennyson` - The happiness of a man in this life does not consist in the absence but in the mastery of his passions.
+- `Alice Walker` - No person is your friend who demands your silence or denies your right to grow.
+- `Amber Valletta` - With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
+- `Ambrose Bierce` - Speak when you are angry, and you will make the best speech you will ever regret.
+- `Amelia Earhart` - Never do things others can do and will do, if there are things others cannot do or will not do.
+- `Amelia Earhart` - Never interrupt someone doing what you said couldn't be done.
+- `Amelia Earhart` - The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward.
+- `Amy Bloom` - Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
+- `Amy Poehler` - There's power in looking silly and not caring that you do.
+- `Amy Tan` - I am like a falling star who has finally found her place next to another in a lovely constellation, where we will sparkle in the heavens forever.
+- `Anatole France` - I prefer the folly of enthusiasm to the indifference of wisdom.
+- `Anatole France` - Irony is the gaiety of reflection and the joy of wisdom.
+- `Anatole France` - It is better to understand a little than to misunderstand a lot.
+- `Anatole France` - To accomplish great things, we must dream as well as act.
+- `Anatole France` - To accomplish great things, we must not only act, but also dream; not only plan, but also believe.
+- `Anatole France` - You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
+- `Anaïs Nin` - Age does not protect you from love. But love, to some extent, protects you from age.
+- `Anaïs Nin` - Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.
+- `Anaïs Nin` - Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.
+- `Anaïs Nin` - Life shrinks or expands in proportion to one's courage.
+- `Anaïs Nin` - The dream was always running ahead of me. To catch up, to live for a moment in unison with it, that was the miracle.
+- `Anaïs Nin` - The personal life deeply lived always expands into truths beyond itself.
+- `Anaïs Nin` - The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.
+- `Anaïs Nin` - There is not one big cosmic meaning for all, there is only the meaning we each give to our life.
+- `Andy Rooney` - If you smile when no one else is around, you really mean it.
+- `Andy Warhol` - They say that time changes things, but you actually have to change them yourself.
+- `Anna Pavlova` - To follow, without halt, one aim: There is the secret of success.
+- `Anne Bradstreet` - If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
+- `Anne Brontë` - All our talents increase in the using, and every faculty, both good and bad, strengthen by exercise.
+- `Anne Frank` - How wonderful it is that nobody need wait a single moment before starting to improve the world.
+- `Anne Frank` - No one has ever become poor by giving.
+- `Anne Frank` - Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
+- `Anne Frank` - We all live with the objective of being happy; our lives are all different and yet the same.
+- `Anne Lamott` - Joy is the best makeup.
+- `Anne Lindbergh` - If one is estranged from oneself, then one is estranged from others too. If one is out of touch with oneself, then one cannot touch others.
+- `Annie Dillard` - How we spend our days is, of course, how we spend our lives.
+- `Ansel Adams` - In wisdom gathered over time I have found that every experience is a form of exploration.
+- `Antoine de Saint-Exupéry` - I know but one freedom and that is the freedom of the mind.
+- `Antoine de Saint-Exupéry` - It is only with the heart that one can see rightly, what is essential is invisible to the eye.
+- `Antoine de Saint-Exupéry` - Love does not consist of gazing at each other, but in looking together in the same direction.
+- `Anton Chekhov` - Knowledge is of no value unless you put it into practice.
+- `Anton Chekhov` - Love, friendship and respect do not unite people as much as a common hatred for something.
+- `Anton Chekhov` - People don't notice whether it's winter or summer when they're happy.
+- `Archimedes` - Give me a lever long enough and a fulcrum on which to place it, and I shall move the world.
+- `Aristotle` - A friend to all is a friend to none.
+- `Aristotle` - Change in all things is sweet.
+- `Aristotle` - Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
+- `Aristotle` - Excellence, then, is a state concerned with choice, lying in a mean, relative to us, this being determined by reason and in the way in which the man of practical wisdom would determine it.
+- `Aristotle` - Friendship is essentially a partnership.
+- `Aristotle` - Happiness depends upon ourselves.
+- `Aristotle` - He who hath many friends hath none.
+- `Aristotle` - If one way be better than another, that you may be sure is nature's way.
+- `Aristotle` - In all things of nature there is something of the marvelous.
+- `Aristotle` - It is the mark of an educated mind to be able to entertain a thought without accepting it.
+- `Aristotle` - Love is composed of a single soul inhabiting two bodies.
+- `Aristotle` - Moral excellence comes about as a result of habit. We become just by doing just acts, temperate by doing temperate acts, brave by doing brave acts.
+- `Aristotle` - Quality is not an act; it is a habit.
+- `Aristotle` - The energy of the mind is the essence of life.
+- `Aristotle` - The virtue of justice consists in moderation, as regulated by wisdom.
+- `Aristotle` - Those that know, do. Those that understand, teach.
+- `Aristotle` - We are what we repeatedly do. Excellence, then, is not an act, but a habit.
+- `Aristotle` - Well begun is half done.
+- `Aristotle` - Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+- `Arthur Ashe` - Start where you are. Use what you have. Do what you can.
+- `Arthur Ashe` - We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
+- `Arthur C. Clarke` - Any sufficiently advanced technology is equivalent to magic.
+- `Arthur Conan Doyle` - It has long been an axiom of mine that the little things are infinitely the most important.
+- `Arthur Conan Doyle` - Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.
+- `Arthur Conan Doyle` - Whenever you have eliminated the impossible, whatever remains, however improbable, must be the truth.
+- `Arthur M. Schlesinger Jr.` - Science and technology revolutionize our lives, but memory, tradition and myth frame our response.
+- `Arthur Rubinstein` - Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.
+- `Arthur Schopenhauer` - Every man takes the limits of his own field of vision for the limits of the world.
+- `Arthur Schopenhauer` - In action a great heart is the chief qualification. In work, a great head.
+- `Audre Lorde` - When I dare to be powerful, to use my strength in the service of my vision, then it becomes less and less important whether I am afraid.
+- `Audrey Hepburn` - For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.
+- `Augustine of Hippo` - Better to have loved and lost, than to have never loved at all.
+- `Augustine of Hippo` - Habit, if not resisted, soon becomes necessity.
+- `Augustine of Hippo` - I want my friend to miss me as long as I miss him.
+- `Augustine of Hippo` - Patience is the companion of wisdom.
+- `Augustine of Hippo` - The world is a book, and those who do not travel read only a page.
+- `Avery Brooks` - Knowledge is going to make you stronger. Knowledge is going to let you control your life. Knowledge is going to give you the wisdom to teach their children. Knowledge is the thing that makes you smile in the face of disaster.
+- `Ayn Rand` - The truth is not for all men, but only for those who seek it.
+- `B. F. Skinner` - The real problem is not whether machines think but whether men do.
+- `Babatunde Olatunji` - Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.
+- `Babe Ruth` - Yesterday's home runs don't win today's games.
+- `Baltasar Gracián` - Friendship multiplies the good of life and divides the evil.
+- `Baltasar Gracián` - True friendship multiplies the good in life and divides its evils. Strive to have friends, for life without friends is like life on a desert island... to find one real friend in a lifetime is good fortune; to keep him is a blessing.
+- `Baltasar Gracián` - Without courage, wisdom bears no fruit.
+- `Barack Obama` - Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.
+- `Barack Obama` - Focusing your life solely on making a buck shows a poverty of ambition. It asks too little of yourself. And it will leave you unfulfilled.
+- `Barack Obama` - If you're walking down the right path and you're willing to keep walking, eventually you'll make progress.
+- `Barack Obama` - No party has a monopoly on wisdom. No democracy works without compromise. But when Governor Romney and his allies in Congress tell us we can somehow lower our deficit by spending trillions more on new tax breaks for the wealthy - well, you do the math. I refuse to go along with that. And as long as I'm President, I never will.
+- `Barbara Bush` - Value your friendship. Value your relationships.
+- `Barbara De Angelis` - We need to find the courage to say NO to the things and people that are not serving us if we want to rediscover ourselves and live our lives with authenticity.
+- `Basil of Caesarea` - A tree is known by its fruit; a man by his deeds. A good deed is never lost; he who sows courtesy reaps friendship, and he who plants kindness gathers love.
+- `Ben Fountain` - Democracy's premise rests on the notion that the collective wisdom of the majority will prove right more often than it's wrong; that given sufficient opportunity in the pursuit of happiness, your population will develop its talents, its intellect, its better judgment; that over time its capacity for discernment and self-correction will be enlarged.
+- `Ben Hogan` - As you walk down the fairway of life you must smell the roses, for you only get to play one round.
+- `Ben Stein` - The first step to getting the things you want out of life is this: decide what you want.
+- `Benjamin Disraeli` - Action may not always bring happiness; but there is no happiness without action.
+- `Benjamin Disraeli` - Ignorance never settles a question.
+- `Benjamin Disraeli` - Never apologize for showing feeling. When you do so, you apologize for truth.
+- `Benjamin Disraeli` - Never apologize for showing feelings. When you do so, you apologize for the truth.
+- `Benjamin Disraeli` - One secret of success in life is for a man to be ready for his opportunity when it comes.
+- `Benjamin Disraeli` - The greatest good you can do for another is not just share your riches but reveal to them their own.
+- `Benjamin Disraeli` - The secret of success is constancy to purpose.
+- `Benjamin Disraeli` - Through perseverance many people win success out of what seemed destined to be certain failure.
+- `Benjamin Disraeli` - We make our own fortunes and we call them fate.
+- `Benjamin Franklin` - Be slow in choosing a friend, slower in changing.
+- `Benjamin Franklin` - By failing to prepare, you are preparing to fail.
+- `Benjamin Franklin` - Dost thou love life? Then do not squander time, for that is the stuff life is made of.
+- `Benjamin Franklin` - Experience keeps a dear school, but fools will learn in no other.
+- `Benjamin Franklin` - Honesty is the best policy.
+- `Benjamin Franklin` - One today is worth two tomorrows.
+- `Benjamin Franklin` - Tell me and I forget. Teach me and I remember. Involve me and I learn.
+- `Benjamin Franklin` - The doors of wisdom are never shut.
+- `Benjamin Franklin` - The doorstep to the temple of wisdom is a knowledge of our own ignorance.
+- `Benjamin Franklin` - There are three faithful friends - an old wife, an old dog, and ready money.
+- `Benjamin Franklin` - There never was a good knife made of bad steel.
+- `Benjamin Franklin` - Watch the little things; a small leak will sink a great ship.
+- `Benjamin Franklin` - Well done is better than well said.
+- `Benjamin Franklin` - When in doubt, don't.
+- `Benjamin Franklin` - Without freedom of thought, there can be no such thing as wisdom - and no such thing as public liberty without freedom of speech.
+- `Benjamin Haydon` - There surely is in human nature an inherent propensity to extract all the good out of all the evil.
+- `Benjamin Spock` - Trust yourself. You know more than you think you do.
+- `Bernadette Devlin` - Yesterday I dared to struggle. Today I dare to win.
+- `Bernard Shaw` - Beware of false knowledge; it is more dangerous than ignorance.
+- `Bernard Shaw` - I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
+- `Bernard Shaw` - Life isn't about finding yourself. Life is about creating yourself.
+- `Bernard Shaw` - We are made wise not by the recollection of our past, but by the responsibility for our future.
+- `Bernard Shaw` - We don't stop playing because we grow old; we grow old because we stop playing.
+- `Bernice Reagon` - Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
+- `Bernice Reagon` - Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
+- `Bertrand Russell` - The happiness that is genuinely satisfying is accompanied by the fullest exercise of our faculties and the fullest realization of the world in which we live.
+- `Bertrand Russell` - To conquer fear is the beginning of wisdom.
+- `Betty Friedan` - It is easier to live through someone else than to become complete yourself.
+- `Bill Bradley` - Imagination allows us to escape the predictable. It enables us to reply to the common wisdom that we cannot soar by saying, 'Just watch!'
+- `Bill Watterson` - All this modern technology just makes people try to do everything at once.
+- `Billie Armstrong` - Our passion is our strength.
+- `Billy Wilder` - Trust your own instinct. Your mistakes might as well be your own, instead of someone else's.
+- `Blaise Pascal` - Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.
+- `Blaise Pascal` - Kind words do not cost much. Yet they accomplish much.
+- `Blaise Pascal` - Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+- `Blaise Pascal` - The heart has its reasons which reason knows not of.
+- `Blaise Pascal` - The least movement is of importance to all nature. The entire ocean is affected by a pebble.
+- `Blaise Pascal` - We are all something, but none of us are everything.
+- `Blaise Pascal` - We know the truth, not only by the reason, but by the heart.
+- `Blaise Pascal` - We must learn our limits. We are all something, but none of us are everything.
+- `Bo Jackson` - Set your goals high, and don't stop till you get there.
+- `Bob Newhart` - All I can say about life is, Oh God, enjoy it!
+- `Bodhidharma` - All know the way; few actually walk it.
+- `Bodhidharma` - Not engaging in ignorance is wisdom.
+- `Booker T. Washington` - Excellence is to do a common thing in an uncommon way.
+- `Booker T. Washington` - The world cares very little about what a man or woman knows; it is what a man or woman is able to do that counts.
+- `Brendan Behan` - No yesterdays are ever wasted for those who give themselves to today.
+- `Brian O'Driscoll` - Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
+- `Brian Tracy` - Goals are the fuel in the furnace of achievement.
+- `Brian Tracy` - There is never enough time to do everything, but there is always enough time to do the most important thing.
+- `Brian Tracy` - Whatever we expect with confidence becomes our own self-fulfilling prophecy.
+- `Brian Tracy` - You can only grow if you're willing to feel awkward and uncomfortable when you try something new.
+- `Brooks Adams` - One friend in a lifetime is much; two are many; three are hardly possible. Friendship needs a certain parallelism of life, a community of thought, a rivalry of aim.
+- `Bruce Lee` - A wise man can learn more from a foolish question than a fool can learn from a wise answer.
+- `Bruce Lee` - All fixed set patterns are incapable of adaptability or pliability. The truth is outside of all fixed patterns.
+- `Bruce Lee` - Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
+- `Bruce Lee` - As you think, so shall you become.
+- `Bruce Lee` - I'm not in this world to live up to your expectations and you're not in this world to live up to mine.
+- `Bruce Lee` - If you love life, don't waste time, for time is what life is made up of.
+- `Bruce Lee` - If you spend too much time thinking about a thing, you'll never get it done.
+- `Bruce Lee` - Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
+- `Bruce Lee` - Mistakes are always forgivable, if one has the courage to admit them.
+- `Bruce Lee` - Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
+- `Bruce Lee` - Take no thought of who is right or wrong or who is better than. Be not for or against.
+- `Bruce Lee` - Take things as they are. Punch when you have to punch. Kick when you have to kick.
+- `Bruce Lee` - The less effort, the faster and more powerful you will be.
+- `Bruce Lee` - To hell with circumstances, I create opportunities.
+- `Bruce Lee` - To know oneself is to study oneself in action with another person.
+- `Buckminster Fuller` - Humanity is acquiring all the right technology for all the wrong reasons.
+- `Buckminster Fuller` - There is nothing in a caterpillar that tells you it's going to be a butterfly.
+- `Buddha` - A jug fills drop by drop.
+- `Buddha` - All that we are is the result of what we have thought. The mind is everything. What we think we become.
+- `Buddha` - Always be mindful of the kindness and not the faults of others.
+- `Buddha` - An idea that is developed and put into action is more important than an idea that exists only as an idea.
+- `Buddha` - Better than a thousand hollow words, is one word that brings peace.
+- `Buddha` - Chaos is inherent in all compounded things. Strive on with diligence.
+- `Buddha` - Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment.
+- `Buddha` - Do not overrate what you have received, nor envy others. He who envies others does not obtain peace of mind.
+- `Buddha` - Every human being is the author of his own health or disease.
+- `Buddha` - Happiness comes when your work and words are of benefit to yourself and others.
+- `Buddha` - He is able who thinks he is able.
+- `Buddha` - He who experiences the unity of life sees his own Self in all beings, and all beings in his own Self, and looks on everything with an impartial eye.
+- `Buddha` - Holding on to anger is like grasping a hot coal with the intent of throwing it at someone else; you are the one who gets burned.
+- `Buddha` - However many holy words you read, however many you speak, what good will they do you if you do not act on upon them?
+- `Buddha` - I am not the first Buddha who came upon Earth, nor shall I be the last. In due time, another Buddha will arise in the world - a Holy One, a supremely enlightened One, endowed with wisdom in conduct, auspicious, knowing the universe, an incomparable leader of men, a master of angels and mortals.
+- `Buddha` - I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
+- `Buddha` - If we could see the miracle of a single flower clearly, our whole life would change.
+- `Buddha` - If you light a lamp for somebody, it will also brighten your path.
+- `Buddha` - If you propose to speak, always ask yourself, is it true, is it necessary, is it kind.
+- `Buddha` - In a controversy the instant we feel anger we have already ceased striving for the truth, and have begun striving for ourselves.
+- `Buddha` - In separateness lies the world's great misery, in compassion lies the world's true strength.
+- `Buddha` - In the sky, there is no distinction of east and west; people create distinctions out of their own minds and then believe them to be true.
+- `Buddha` - It is better to travel well than to arrive.
+- `Buddha` - Just as a candle cannot burn without fire, men cannot live without a spiritual life.
+- `Buddha` - Just as treasures are uncovered from the earth, so virtue appears from good deeds, and wisdom appears from a pure and peaceful mind. To walk safely through the maze of human life, one needs the light of wisdom and the guidance of virtue.
+- `Buddha` - Let my skin and sinews and bones dry up, together with all the flesh and blood of my body! I welcome it! But I will not move from this spot until I have attained the supreme and final wisdom.
+- `Buddha` - Meditation brings wisdom, lack of meditation leaves ignorance. Know well what leads you forward and what holds you back and choose the path that leads to wisdom.
+- `Buddha` - No matter how hard the past, you can always begin again.
+- `Buddha` - No one saves us but ourselves. No one can and no one may. We ourselves must walk the path.
+- `Buddha` - Peace comes from within. Do not seek it without.
+- `Buddha` - Remembering a wrong is like carrying a burden on the mind.
+- `Buddha` - The foot feels the foot when it feels the ground.
+- `Buddha` - The mind is everything. What you think you become.
+- `Buddha` - The only real failure in life is not to be true to the best one knows.
+- `Buddha` - The thought manifests as the word. The word manifests as the deed. The deed develops into habit. And the habit hardens into character.
+- `Buddha` - The way is not in the sky. The way is in the heart.
+- `Buddha` - There are only two mistakes one can make along the road to truth; not going all the way, and not starting.
+- `Buddha` - Those who are free of resentful thoughts surely find peace.
+- `Buddha` - Thousands of candles can be lighted from a single candle, and the life of the candle will not be shortened. Happiness never decreases by being shared.
+- `Buddha` - Thousands of candles can be lit from a single, and the life of the candle will not be shortened. Happiness never decreases by being shared.
+- `Buddha` - Three things cannot be long hidden: the sun, the moon, and the truth.
+- `Buddha` - To enjoy good health, to bring true happiness to one's family, to bring peace to all, one must first discipline and control one's own mind. If a man can control his mind, he can find the way to Enlightenment, and all wisdom and virtue will naturally come to him.
+- `Buddha` - To keep the body in good health is a duty... otherwise we shall not be able to keep our mind strong and clear.
+- `Buddha` - To live a pure unselfish life, one must count nothing as one's own in the midst of abundance.
+- `Buddha` - We are shaped by our thoughts; we become what we think. When the mind is pure, joy follows like a shadow that never leaves.
+- `Buddha` - We are what we think. All that we are arises with our thoughts. With our thoughts, we make the world.
+- `Buddha` - What we think, we become.
+- `Buddha` - When you realize how perfect everything is you will tilt your head back and laugh at the sky.
+- `Buddha` - Work out your own salvation. Do not depend on others.
+- `Buddha` - You cannot travel the path until you have become the path itself.
+- `Buddha` - You only lose what you cling to.
+- `Buddha` - You will not be punished for your anger; you will be punished by your anger.
+- `Buddha` - You, yourself, as much as anybody in the entire universe, deserve your love and affection.
+- `Buddha` - Your body is precious. It is our vehicle for awakening. Treat it with care.
+- `Buddha` - Your work is to discover your work and then with all your heart to give yourself to it.
+- `Buddha` - Your work is to discover your world and then with all your heart give yourself to it.
+- `Buddha` - Your worst enemy cannot harm you as much as your own unguarded thoughts.
+- `Calvin Coolidge` - I have never been hurt by anything I didn't say.
+- `Calvin Coolidge` - Knowledge comes, but wisdom lingers. It may not be difficult to store up in the mind a vast quantity of facts within a comparatively short time, but the ability to form judgments requires the severe discipline of hard work and the tempering heat of experience and maturity.
+- `Calvin Coolidge` - We cannot do everything at once, but we can do something at once.
+- `Camillo Benso, Count of Cavour` - The man who trusts men will make fewer mistakes than he who distrusts them.
+- `Carl Jung` - Everything that irritates us about others can lead us to a better understanding of ourselves.
+- `Carl Jung` - Everything that irritates us about others can lead us to an understanding of ourselves.
+- `Carl Jung` - In all chaos there is a cosmos, in all disorder a secret order.
+- `Carl Jung` - It all depends on how we look at things, and not how they are in themselves.
+- `Carl Jung` - Knowing your own darkness is the best method for dealing with the darkness of other people.
+- `Carl Jung` - Knowledge rests not upon truth alone, but upon error also.
+- `Carl Jung` - The least of things with a meaning is worth more in life than the greatest of things without it.
+- `Carl Jung` - The shoe that fits one person pinches another; there is no recipe for living that suits all cases.
+- `Carl Jung` - Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+- `Carl Jung` - Who looks outside, dreams, who looks inside, awakes.
+- `Carl Jung` - Without this playing with fantasy no creative work has ever yet come to birth. The debt we owe to the play of the imagination is incalculable.
+- `Carl Jung` - Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.
+- `Carl Jung` - Your vision will become clear only when you look into your heart. Who looks outside, dreams. Who looks inside, awakens.
+- `Carl Sagan` - Imagination will often carry us to worlds that never were. But without it we go nowhere.
+- `Carl Sandburg` - Nothing happens unless first we dream.
+- `Carlos Castaneda` - The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.
+- `Carol Burnett` - Only I can change my life. No one can do it for me.
+- `Caroline Myss` - You cannot change anything in your life with intention alone, which can become a watered-down, occasional hope that you'll get to tomorrow. Intention without action is useless.
+- `Carrie Snow` - Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.
+- `Caterina Fake` - If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
+- `Cecil B. DeMille` - The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.
+- `Chanakya` - A man is great by deeds, not by birth.
+- `Chanakya` - Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
+- `Chanakya` - There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth.
+- `Charles Caleb Colton` - True friendship is like sound health; the value of it is seldom known until it is lost.
+- `Charles Darwin` - The highest stage in moral culture at which we can arrive is when we recognize that we ought to control our thoughts.
+- `Charles Dickens` - Don't leave a stone unturned. It's always something, to know you have done the most you could.
+- `Charles Dickens` - There is a wisdom of the head, and a wisdom of the heart.
+- `Charles Du Bos` - The important thing is this: to be able at any moment to sacrifice what we are for what we could become.
+- `Charles Eastman` - Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
+- `Charles F. Kettering` - One fails forward toward success.
+- `Charles Henry Parkhurst` - The heart has eyes which the brain knows nothing of.
+- `Charles Kingsley` - It is only the great hearted who can be true friends. The mean and cowardly, can never know what true friendship means.
+- `Charles Lamb` - The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
+- `Charles Lindbergh` - Life a culmination of the past, an awareness of the present, an indication of the future beyond knowledge, the quality that gives a touch of divinity to matter.
+- `Charles Péguy` - Love is rarer than genius itself. And friendship is rarer than love.
+- `Charles Spurgeon` - Wisdom is the right use of knowledge. To know is not to be wise. Many men know a great deal and are all the greater fools for it. There is no fool so great a fool as a knowing fool. But to know how to use knowledge is to have wisdom.
+- `Charles W. Chesnutt` - Impossibilities are merely things which we have not yet learned.
+- `Charlotte Brontë` - A ruffled mind makes a restless pillow.
+- `Charlotte Brontë` - Life is so constructed that an event does not, cannot, will not, match the expectation.
+- `Charlotte Perkins Gilman` - Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!
+- `Charlotte Perkins Gilman` - The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
+- `Cheng Yen` - Happiness does not come from having much, but from being attached to little.
+- `Christian Dior` - All I required to be happy was friendship and people I could admire.
+- `Christie Brinkley` - Share your smile with the world. It's a symbol of friendship and peace.
+- `Christopher Morley` - There is only one success - to be able to spend your life in your own way.
+- `Christopher Morley` - There is only one success: to be able to spend your life in your own way.
+- `Christopher Reeve` - Never accept ultimatums, conventional wisdom, or absolutes.
+- `Christopher Reeve` - Once you choose hope, anything's possible.
+- `Christopher Reeve` - What makes Superman a hero is not that he has power, but that he has the wisdom and the maturity to use the power wisely. From an acting point of view, that's how I approached the part.
+- `Chuck Norris` - A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
+- `Chuck Norris` - A lot of times people look at the negative side of what they feel they can't do. I always look on the positive side of what I can do.
+- `Chuck Swindoll` - I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let's face it, friends make life a lot more fun.
+- `Chuck Swindoll` - Life is 10% what happens to you and 90% how you react to it.
+- `Chuck Swindoll` - We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
+- `Cicero` - A friend is, as it were, a second self.
+- `Cicero` - Friendship improves happiness and abates misery, by the doubling of our joy and the dividing of our grief.
+- `Cicero` - Gratitude is not only the greatest of virtues, but the parent of all the others.
+- `Cicero` - Love is the attempt to form a friendship inspired by beauty.
+- `Cicero` - The function of wisdom is to discriminate between good and evil.
+- `Cicero` - The higher we are placed, the more humbly we should walk.
+- `Cicero` - The rule of friendship means there should be mutual sympathy between them, each supplying what the other lacks and trying to benefit the other, always using friendly and sincere words.
+- `Cicero` - We must not say every mistake is a foolish one.
+- `Cicero` - What sweetness is left in life, if you take away friendship? Robbing life of friendship is like robbing the world of the sun. A true friend is more to be esteemed than kinsfolk.
+- `Clay Shirky` - Communications tools don't get socially interesting until they get technologically boring.
+- `Coco Chanel` - How many cares one loses when one decides not to be something but to be someone.
+- `Coco Chanel` - There are people who have money and people who are rich.
+- `Colette` - I love my past. I love my present. I'm not ashamed of what I've had, and I'm not sad because I have it no longer.
+- `Colin Powell` - Avoid having your ego so close to your position that when your position falls, your ego goes with it.
+- `Colin Powell` - If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.
+- `Confucius` - A youth, when at home, should be filial and, abroad, respectful to his elders. He should be earnest and truthful. He should overflow in love to all and cultivate the friendship of the good. When he has time and opportunity, after the performance of these things, he should employ them in polite studies.
+- `Confucius` - Ability will never catch up with the demand for it.
+- `Confucius` - Being in humaneness is good. If we select other goodness and thus are far apart from humaneness, how can we be the wise?
+- `Confucius` - By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.
+- `Confucius` - Choose a job you love, and you will never have to work a day in your life.
+- `Confucius` - Everything has beauty, but not everyone sees it.
+- `Confucius` - Fine words and an insinuating appearance are seldom associated with true virtue
+- `Confucius` - He who wishes to secure the good of others, has already secured his own.
+- `Confucius` - I am not bothered by the fact that I am unknown. I am bothered when I do not know others.
+- `Confucius` - I hear and I forget. I see and I remember. I do and I understand.
+- `Confucius` - I want you to be everything that's you, deep at the center of your being.
+- `Confucius` - I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
+- `Confucius` - If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear?
+- `Confucius` - It does not matter how slowly you go as long as you do not stop.
+- `Confucius` - It is more shameful to distrust our friends than to be deceived by them.
+- `Confucius` - Learning without reflection is a waste, reflection without learning is dangerous.
+- `Confucius` - Life is really simple, but we insist on making it complicated.
+- `Confucius` - Our greatest glory is not in never falling, but in rising every time we fall.
+- `Confucius` - Reviewing what you have learned and learning anew, you are fit to be a teacher.
+- `Confucius` - Silence is the true friend that never betrays.
+- `Confucius` - Sincerity is the way of Heaven. The attainment of sincerity is the way of men.
+- `Confucius` - Study the past, if you would divine the future.
+- `Confucius` - The Superior Man is aware of Righteousness, the inferior man is aware of advantage.
+- `Confucius` - The cautious seldom err.
+- `Confucius` - The more man meditates upon good thoughts, the better will be his world and the world at large.
+- `Confucius` - The more you know yourself, the more you forgive yourself.
+- `Confucius` - The superior man acts before he speaks, and afterwards speaks according to his action.
+- `Confucius` - The superior man is modest in his speech but exceeds in his actions.
+- `Confucius` - The superior man is satisfied and composed; the mean man is always full of distress.
+- `Confucius` - The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
+- `Confucius` - There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.
+- `Confucius` - They must often change, who would be constant in happiness or wisdom.
+- `Confucius` - To be wrong is nothing unless you continue to remember it.
+- `Confucius` - To be wronged is nothing unless you continue to remember it.
+- `Confucius` - To give oneself earnestly to the duties due to men, and, while respecting spiritual beings, to keep aloof from them, may be called wisdom.
+- `Confucius` - To study and not think is a waste. To think and not study is dangerous.
+- `Confucius` - What you do not want done to yourself, do not do to others.
+- `Confucius` - When it is obvious that the goals cannot be reached, don't adjust the goals, adjust the action steps.
+- `Confucius` - When you meet someone better than yourself, turn your thoughts to becoming his equal. When you meet someone not as good as you are, look within and examine your own self.
+- `Confucius` - When you see a good person, think of becoming like him. When you see someone not so good, reflect on your own weak points.
+- `Confucius` - When you see a man of worth, think of how you may emulate him. When you see one who is unworthy, examine yourself.
+- `Confucius` - Wherever you go, go with all your heart.
+- `Confucius` - Wisdom, compassion, and courage are the three universally recognized moral qualities of men.
+- `Corita Kent` - Life is a succession of moments. To live each one is to succeed.
+- `Cory Doctorow` - This is why I loved technology: if you used it right, it could give you power and privacy.
+- `Cynthia Ozick` - To want to be what one can be is purpose in life.
+- `Dag Hammarskjöld` - Friendship needs no words - it is solitude delivered from the anguish of loneliness.
+- `Daisaku Ikeda` - Genuine sincerity opens people's hearts, while manipulation causes them to close.
+- `Daisaku Ikeda` - If we look at the world with a love of life, the world will reveal its beauty to us.
+- `Daisaku Ikeda` - If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
+- `Daisaku Ikeda` - The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
+- `Daisaku Ikeda` - True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.
+- `Daisaku Ikeda` - What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.
+- `Dalai Lama` - Be kind whenever possible. It is always possible.
+- `Dalai Lama` - By going beyond your own problems and taking care of others, you gain inner strength, self-confidence, courage, and a greater sense of calm.
+- `Dalai Lama` - Compassion and happiness are not a sign of weakness but a sign of strength.
+- `Dalai Lama` - Consider that not only do negative thoughts and emotions destroy our experience of peace, but they also undermine our health.
+- `Dalai Lama` - Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
+- `Dalai Lama` - Genuine love should first be directed at oneself; if we do not love ourselves, how can we love others?
+- `Dalai Lama` - Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
+- `Dalai Lama` - Happiness is not something ready-made. It comes from your own actions.
+- `Dalai Lama` - Happiness mainly comes from our own attitude, rather than from external factors.
+- `Dalai Lama` - I believe that we are fundamentally the same and have the same basic potential.
+- `Dalai Lama` - I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.
+- `Dalai Lama` - If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace.
+- `Dalai Lama` - It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
+- `Dalai Lama` - Love and compassion open our own inner life, reducing stress, distrust and loneliness.
+- `Dalai Lama` - More often than not, anger is actually an indication of weakness rather than of strength.
+- `Dalai Lama` - People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
+- `Dalai Lama` - Remember that sometimes not getting what you want is a wonderful stroke of luck.
+- `Dalai Lama` - See the positive side, the potential, and make an effort.
+- `Dalai Lama` - The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.
+- `Dalai Lama` - The most important thing is transforming our minds, for a new way of thinking, a new outlook: we should strive to develop a new inner world.
+- `Dalai Lama` - There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
+- `Dalai Lama` - To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
+- `Dalai Lama` - When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
+- `Dalai Lama` - With the realization of one's own potential and self-confidence in one's ability, one can build a better world.
+- `Dale Carnegie` - Applause is a receipt, not a bill.
+- `Dale Carnegie` - Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.
+- `Dale Carnegie` - Success is getting what you want. Happiness is wanting what you get.
+- `Dale Carnegie` - When fate hands us a lemon, let's try to make lemonade.
+- `Dale Earnhardt` - The winner ain't the one with the fastest car it's the one who refuses to lose.
+- `Dale Turner` - Some of the best lessons we ever learn are learned from past mistakes. The error of the past is the wisdom and success of the future.
+- `Daniel J. Boorstin` - The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.
+- `Daniel Webster` - Wisdom begins at the end.
+- `Danilo Dolci` - It's important to know that words don't move mountains. Work, exacting work moves mountains.
+- `David Bader` - Be here now. Be someplace else later. Is that so complicated?
+- `David Brinkley` - A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
+- `David Eddings` - No day in which you learn something is a complete loss.
+- `David McCullough` - Real success is finding your lifework in the work that you love.
+- `David Rockefeller` - Success in business requires training and discipline and hard work. But if you're not frightened by these things, the opportunities are just as great today as they ever were.
+- `Democritus` - Happiness resides not in possessions, and not in gold, happiness dwells in the soul.
+- `Demosthenes` - Small opportunities are often the beginning of great enterprises.
+- `Denis Waitley` - A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown.
+- `Denis Waitley` - Happiness cannot be travelled to, owned, earned, worn or consumed. Happiness is the spiritual experience of living every minute with love, grace and gratitude.
+- `Denis Waitley` - The only person who never makes mistakes is the person who never does anything.
+- `Denis Waitley` - There are two primary choices in life: to accept conditions as they exist or accept responsibility for changing them.
+- `Denis Waitley` - You must welcome change as the rule but not as your ruler.
+- `Desmond Tutu` - We must not allow ourselves to become like the system we oppose.
+- `Desmond Tutu` - You don't choose your family. They are God's gift to you, as you are to them.
+- `Dhammapada` - Do not give your attention to what others do or fail to do; give it to what you do or fail to do.
+- `Dhammapada` - Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.
+- `Diogenes` - Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.
+- `Don DeLillo` - This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
+- `Don Miguel Ruiz` - Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
+- `Don Shula` - The superior man blames himself. The inferior man blames others.
+- `Donald Trump` - It is time to remember that old wisdom our soldiers will never forget: that whether we are black or brown or white, we all bleed the same red blood of patriots, we all enjoy the same glorious freedoms, and we all salute the same great American Flag.
+- `Doris Day` - Gratitude is riches. Complaint is poverty.
+- `Doris Mortman` - Until you make peace with who you are, you will never be content with what you have.
+- `Doris Mortman` - Until you make peace with who you are, you'll never be content with what you have.
+- `Dorothy Thompson` - Fear grows in darkness; if you think there's a bogeyman around, turn on the light.
+- `Dorothy Thompson` - Only when we are no longer afraid do we begin to live.
+- `Doug Horton` - Be your own hero, it's cheaper than a movie ticket.
+- `Doug Larson` - A true friend is one who overlooks your failures and tolerates your success!
+- `Doug Larson` - Wisdom is the reward you get for a lifetime of listening when you'd have preferred to talk.
+- `Douglas Adams` - First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII — and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we've realized it's a brochure.
+- `Douglas Adams` - Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
+- `Douglas Adams` - Technology is a word that describes something that doesn't work yet.
+- `Douglas Adams` - We are stuck with technology when what we really want is just stuff that works.
+- `Douglas Coupland` - TV and the Internet are good because they keep stupid people from spending too much time out in public.
+- `Douglas MacArthur` - It is fatal to enter any war without the will to win it.
+- `Dr. Seuss` - Don't cry because it's over. Smile because it happened.
+- `Dr. Seuss` - Step with care and great tact and remember that Life's a Great Balancing Act.
+- `Dr. Seuss` - Today you are you! That is truer than true! There is no one alive who is you-er than you!
+- `Dr. Seuss` - You know you're in love when you can't fall asleep because reality is finally better than your dreams.
+- `Dwight D. Eisenhower` - Motivation is the art of getting people to do what you want them to do because they want to do it.
+- `Dwight D. Eisenhower` - The older I get the more wisdom I find in the ancient rule of taking first things first. A process which often reduces the most complex human problem to a manageable proportion.
+- `E. E. Cummings` - It takes courage to grow up and become who you really are.
+- `E. M. Forster` - One must be fond of people and trust them if one is not to make a mess of life.
+- `Eckhart Tolle` - It is not uncommon for people to spend their whole life waiting to start living.
+- `Eckhart Tolle` - The greater part of human pain is unnecessary. It is self-created as long as the unobserved mind runs your life.
+- `Eckhart Tolle` - The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.
+- `Eckhart Tolle` - The past has no power to stop you from being present now. Only your grievance about the past can do that.
+- `Eckhart Tolle` - Whenever something negative happens to you, there is a deep lesson concealed within it.
+- `Eckhart Tolle` - You cannot find yourself by going into the past. You can find yourself by coming into the present.
+- `Eckhart Tolle` - You do not become good by trying to be good, but by finding the goodness that is already within you.
+- `Ed Cunningham` - Friends are those rare people who ask how we are and then wait to hear the answer.
+- `Eden Phillpotts` - The universe is full of magical things, patiently waiting for our wits to grow sharper.
+- `Edgar Allan Poe` - All that we see or seem is but a dream within a dream.
+- `Edgar Allan Poe` - Those who dream by day are cognizant of many things which escape those who dream only by night.
+- `Edith Wharton` - If only wed stop trying to be happy wed have a pretty good time.
+- `Edith Wharton` - Life is the only real counselor; wisdom unfiltered through personal experience does not become a part of the moral tissue.
+- `Edith Wharton` - There are two ways of spreading light: to be the candle or the mirror that reflects it.
+- `Edmond Rostand` - A man is not old as long as he is seeking something.
+- `Edmund Burke` - But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
+- `Edmund Burke` - Nobody made a greater mistake than he who did nothing because he could do only a little.
+- `Edward Everett Hale` - Coming together is a beginning; keeping together is progress; working together is success.
+- `Edward Everett Hale` - Make it your habit not to be critical about small things.
+- `Edward Gibbon` - The winds and waves are always on the side of the ablest navigators.
+- `Edward Young` - On every thorn, delightful wisdom grows, in every rill a sweet instruction flows.
+- `Edward de Bono` - It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.
+- `Edwin Markham` - We have committed the Golden Rule to memory; let us now commit it to life.
+- `Eknath Easwaran` - Through meditation and by giving full attention to one thing at a time, we can learn to direct attention where we choose.
+- `Elbert Hubbard` - A failure is a man who has blundered but is not capable of cashing in on the experience.
+- `Elbert Hubbard` - A friend is one who knows you and loves you just the same.
+- `Elbert Hubbard` - A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+- `Elbert Hubbard` - Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+- `Elbert Hubbard` - Friendship, like credit, is highest when it is not used.
+- `Elbert Hubbard` - It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
+- `Elbert Hubbard` - Never explain - your friends do not need it and your enemies will not believe you anyway.
+- `Elbert Hubbard` - One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
+- `Elbert Hubbard` - The final proof of greatness lies in being able to endure criticism without resentment.
+- `Elbert Hubbard` - The greatest mistake you can make in life is to be continually fearing you will make one.
+- `Elbert Hubbard` - There is no failure except in no longer trying.
+- `Elbert Hubbard` - To avoid criticism, do nothing, say nothing, be nothing.
+- `Eleanor Roosevelt` - Do one thing every day that scares you.
+- `Eleanor Roosevelt` - Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
+- `Eleanor Roosevelt` - Friendship with oneself is all important, because without it one cannot be friends with anyone else in the world.
+- `Eleanor Roosevelt` - Great minds discuss ideas; average minds discuss events; small minds discuss people.
+- `Eleanor Roosevelt` - I think somehow, we learn who we really are and then live with that decision.
+- `Eleanor Roosevelt` - It is not fair to ask of others what you are unwilling to do yourself.
+- `Eleanor Roosevelt` - No one can make you feel inferior without your consent.
+- `Eleanor Roosevelt` - One's philosophy is not best expressed in words; it is expressed in the choices one makes... and the choices we make are ultimately our responsibility.
+- `Eleanor Roosevelt` - People grow through experience if they meet life honestly and courageously. This is how character is built.
+- `Eleanor Roosevelt` - Remember always that you not only have the right to be an individual, you have an obligation to be one.
+- `Eleanor Roosevelt` - The future belongs to those who believe in the beauty of their dreams.
+- `Eleanor Roosevelt` - With the new day comes new strength and new thoughts.
+- `Eleanor Roosevelt` - You must do the things you think you cannot do.
+- `Elie Wiesel` - Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
+- `Elisabeth Kübler-Ross` - I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.
+- `Elizabeth Arden` - I'm not interested in age. People who tell me their age are silly. You're as old as you feel.
+- `Elizabeth Browning` - Light tomorrow with today!
+- `Elizabeth Browning` - Love doesn't make the world go round; love is what makes the ride worthwhile.
+- `Elizabeth Browning` - Whoso loves, believes the impossible.
+- `Elizabeth Kapu'uwailani Lindsey` - We live in a society bloated with data yet starved for wisdom. We're connected 24/7, yet anxiety, fear, depression and loneliness are at an all-time high. We must course-correct.
+- `Elizabeth Kenny` - He who angers you conquers you.
+- `Elizabeth Kenny` - It's better to be a lion for a day than a sheep all your life.
+- `Elizabeth Montagu` - I endeavor to be wise when I cannot be merry, easy when I cannot be glad, content with what cannot be mended and patient when there is no redress.
+- `Ella Fitzgerald` - It isn't where you come from, it's where you're going that counts.
+- `Ella Wheeler Wilcox` - All love that has not friendship for its base, is like a mansion built upon the sand.
+- `Ella Wheeler Wilcox` - The truest greatness lies in being kind, the truest wisdom in a happy mind.
+- `Ellen Gilchrist` - Don't ruin the present with the ruined past.
+- `Ellen Glasgow` - What happens is not as important as how you react to what happens.
+- `Emily Dickinson` - My friends are my estate.
+- `Epictetus` - Difficulties are things that show a person what they are.
+- `Epictetus` - First say to yourself what you would be; and then do what you have to do.
+- `Epictetus` - Freedom is the right to live as we wish.
+- `Epictetus` - He is a wise man who does not grieve for the things which he has not but rejoices for those which he has.
+- `Epictetus` - If you seek truth, you will not seek victory by dishonorable means, and if you find truth you will become invincible.
+- `Epictetus` - If you wish to be a writer, write.
+- `Epictetus` - It is impossible for a man to learn what he thinks he already knows.
+- `Epictetus` - It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
+- `Epictetus` - It's not what happens to you, but how you react to it that matters.
+- `Epictetus` - Keep silence for the most part, and speak only when you must, and then briefly.
+- `Epictetus` - Know, first, who you are, and then adorn yourself accordingly.
+- `Epictetus` - Make the best use of what is in your power and take the rest as it happens.
+- `Epictetus` - Men are disturbed not by things, but by the view which they take of them.
+- `Epictetus` - Nature gave us one tongue and two ears so we could hear twice as much as we speak.
+- `Epictetus` - No man is free who is not master of himself.
+- `Epictetus` - Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
+- `Epictetus` - One that desires to excel should endeavor in those things that are in themselves most excellent.
+- `Epictetus` - Practice yourself, for heaven's sake in little things, and then proceed to greater.
+- `Epictetus` - The key is to keep company only with people who uplift you, whose presence calls forth your best.
+- `Epictetus` - The world turns aside to let any man pass who knows where he is going.
+- `Epictetus` - There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will.
+- `Epictetus` - We have two ears and one mouth so that we can listen twice as much as we speak.
+- `Epictetus` - When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.
+- `Epicurus` - It is not so much our friends' help that helps us, as the confidence of their help.
+- `Epicurus` - Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
+- `Erasmus` - The fox has many tricks. The hedgehog has but one. But that is the best of all.
+- `Eric Hoffer` - In times of change, learners inherit the earth, while the learned find themselves beautifully equipped to deal with a world that no longer exists.
+- `Ernest Hemingway` - But man is not made for defeat. A man can be destroyed but not defeated.
+- `Ernest Hemingway` - Never mistake motion for action.
+- `Ernie Banks` - Loyalty and friendship, which is to me the same, created all the wealth that I've ever thought I'd have.
+- `Etty Hillesum` - Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
+- `Euripides` - Along with success comes a reputation for wisdom.
+- `Euripides` - Cleverness is not wisdom.
+- `Euripides` - Friends show their love in times of trouble, not in happiness.
+- `Euripides` - Leave no stone unturned.
+- `Euripides` - Life has no blessing like a prudent friend.
+- `Euripides` - One loyal friend is worth ten thousand relatives.
+- `Euripides` - The wisest men follow their own direction.
+- `Eustace Budgell` - Friendship is a strong and habitual inclination in two persons to promote the good and happiness of one another.
+- `Everett Dirksen` - I am a man of fixed and unbending principles, the first of which is to be flexible at all times.
+- `Ezra Stiles` - A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.
+- `Ezra Taft Benson` - With pride, there are many curses. With humility, there come many blessings.
+- `Farhan Akhtar` - Friendship brings in a lot of honesty and trust into any relationship, especially a marriage.
+- `Fawn M. Brodie` - A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.
+- `Forrest Church` - Do what you can. Want what you have. Be who you are.
+- `Francis Bacon` - A prudent question is one half of wisdom.
+- `Francis Bacon` - A wise man will make more opportunities than he finds.
+- `Francis Bacon` - Friendship increases in visiting friends, but in visiting them seldom.
+- `Francis Bacon` - It is impossible to love and to be wise.
+- `Francis Bacon` - Silence is the sleep that nourishes wisdom.
+- `Francis Bacon` - There is a difference between happiness and wisdom: he that thinks himself the happiest man is really so; but he that thinks himself the wisest is generally the greatest fool.
+- `Francis Bacon` - Wise men make more opportunities than they find.
+- `Francis de Sales` - A quarrel between friends, when made up, adds a new tie to friendship.
+- `Francis of Assisi` - Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.
+- `Francis of Assisi` - Pure, holy simplicity confounds all the wisdom of this world and the wisdom of the flesh.
+- `Francis of Assisi` - Where there is charity and wisdom, there is neither fear nor ignorance.
+- `Frank Abagnale` - We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
+- `Frank Herbert` - The beginning of knowledge is the discovery of something we do not understand.
+- `Frank Lloyd Wright` - Respect should be earned by actions, and not acquired by years.
+- `Frank Lloyd Wright` - The thing always happens that you really believe in; and the belief in a thing makes it happen.
+- `Franklin D. Roosevelt` - Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+- `Franklin D. Roosevelt` - It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
+- `Franklin D. Roosevelt` - The only limit to our realization of tomorrow will be our doubts of today.
+- `Franklin D. Roosevelt` - There are many ways of going forward, but only one way of standing still.
+- `Franklin D. Roosevelt` - When you come to the end of your rope, tie a knot and hang on.
+- `Franklin D. Roosevelt` - When you reach the end of your rope, tie a knot in it and hang on.
+- `Franz Grillparzer` - Genius unrefined resembles a flash of lightning, but wisdom is like the sun.
+- `Franz Kafka` - Start with what is right rather than what is acceptable.
+- `Franz Liszt` - Beware of missing chances; otherwise it may be altogether too late someday.
+- `François de La Rochefoucauld` - A true friend is the greatest of all blessings, and that which we take the least care of all to acquire.
+- `François de La Rochefoucauld` - A true friend is the most precious of all possessions and the one we take the least thought about acquiring.
+- `François de La Rochefoucauld` - However rare true love may be, it is less so than true friendship.
+- `François de La Rochefoucauld` - In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
+- `Frederick Douglass` - I prefer to be true to myself, even at the hazard of incurring the ridicule of others, rather than to be false, and to incur my own abhorrence.
+- `Frederick Douglass` - If there is no struggle, there is no progress.
+- `Friedrich Nietzsche` - Does wisdom perhaps appear on the earth as a raven which is inspired by the smell of carrion?
+- `Friedrich Nietzsche` - It is not a lack of love, but a lack of friendship that makes unhappy marriages.
+- `Friedrich Nietzsche` - Love is blind; friendship closes its eyes.
+- `Friedrich Nietzsche` - Rejoicing in our joy, not suffering over our suffering, makes someone a friend.
+- `Friedrich Nietzsche` - The man of knowledge must be able not only to love his enemies but also to hate his friends.
+- `Friedrich Nietzsche` - There is more wisdom in your body than in your deepest philosophy.
+- `Friedrich Nietzsche` - We love life, not because we are used to living but because we are used to loving.
+- `Friedrich Nietzsche` - You need chaos in your soul to give birth to a dancing star.
+- `G. K. Chesterton` - I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on man unless they act.
+- `G. K. Chesterton` - I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+- `Gail Sheehy` - To be tested is good. The challenged life may be the best therapist.
+- `Galileo Galilei` - All truths are easy to understand once they are discovered; the point is to discover them.
+- `George Bernard Shaw` - A life spent making mistakes is not only more honorable, but more useful than a life spent doing nothing.
+- `George Bernard Shaw` - The possibilities are numerous once we decide to act and not react.
+- `George Eliot` - It is never too late to be what you might have been.
+- `George Eliot` - What do we live for, if it is not to make life less difficult for each other?
+- `George Eliot` - Where is the Life we have lost in living? Where is the wisdom we have lost in knowledge? Where is the knowledge we have lost in information?
+- `George Foreman` - Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
+- `George Herbert` - Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.
+- `George Herbert` - None knows the weight of another's burden.
+- `George Herbert` - Read as you taste fruit or savor wine, or enjoy friendship, love or life.
+- `George Jean Nathan` - Love demands infinitely less than friendship.
+- `George Marshall` - When a thing is done, it's done. Don't look back. Look forward to your next objective.
+- `George Orwell` - Happiness can exist only in acceptance.
+- `George Orwell` - Myths which are believed in tend to become true.
+- `George S. Patton` - Accept challenges, so that you may feel the exhilaration of victory.
+- `George S. Patton` - Accept the challenges so that you can feel the exhilaration of victory.
+- `George S. Patton` - If a man does his best, what else is there?
+- `George S. Patton` - Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+- `George Sand` - There is only one happiness in life, to love and be loved.
+- `George Santayana` - Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+- `George Santayana` - One's friends are that part of the human race with which one can be human.
+- `George Santayana` - Those who cannot learn from history are doomed to repeat it.
+- `George Washington` - Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.
+- `George Washington` - It is far better to be alone, than to be in bad company.
+- `George Washington` - True friendship is a plant of slow growth, and must undergo and withstand the shocks of adversity, before it is entitled to the appellation.
+- `Giotto` - The sincere friends of this world are as ship lights in the stormiest of nights.
+- `Gloria Steinem` - If the shoe doesn't fit, must we change the foot?
+- `Gloria Steinem` - Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.
+- `Gordon Hinckley` - Our kindness may be the most persuasive argument for that which we believe.
+- `Gordon Hinckley` - Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
+- `Gordon Hinckley` - Without hard work, nothing grows but weeds.
+- `Grandma Moses` - Life is what you make of it. Always has been, always will be.
+- `Gustave Flaubert` - Reality does not conform to the ideal but confirms it.
+- `H. Jackson Brown Jr.` - Acquaintances we meet, enjoy, and can easily leave behind; but friendship grows deep roots.
+- `H. Jackson Brown Jr.` - Don't be afraid to go out on a limb. That's where the fruit is.
+- `H. Jackson Brown Jr.` - Our character is what we do when we think no one is looking.
+- `H. Jackson Brown Jr.` - Remember that a gesture of friendship, no matter how small, is always appreciated.
+- `H. Jackson Brown Jr.` - Remember that the most valuable antiques are dear old friends.
+- `H. Jackson Brown Jr.` - The best preparation for tomorrow is doing your best today.
+- `H. Jackson Brown Jr.` - Think big thoughts but relish small pleasures.
+- `Haddon Robinson` - What worries you masters you.
+- `Hal Abelson` - Programs must be written for people to read, and only incidentally for machines to execute.
+- `Hannah Arendt` - Promises are the uniquely human way of ordering the future, making it predictable and reliable to the extent that this is humanly possible.
+- `Hannah More` - It is not so important to know everything as to appreciate what we learn.
+- `Hannah More` - Obstacles are those things you see when you take your eyes off the goal.
+- `Hannah Szenes` - One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
+- `Hanya Yanagihara` - Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
+- `Harbhajan Singh` - I define friendship as a bond that transcends all barriers. When you are ready to expect anything and everything from friends, good, bad or ugly... that's what I call true friendship.
+- `Harold Nicolson` - We are all inclined to judge ourselves by our ideals; others, by their acts.
+- `Harriet Beecher Stowe` - All serious daring starts from within.
+- `Harriet Lerner` - Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.
+- `Harriet Tubman` - Every great dream begins with a dreamer. Always remember, you have within you the strength, the patience, and the passion to reach for the stars to change the world.
+- `Harriet Woods` - You can stand tall without standing on someone. You can be a victor without having victims.
+- `Harry Kemp` - The poor man is not he who is without a cent, but he who is without a dream.
+- `Harvey Mackay` - Talent is God-given; be humble. Fame is man-given; be thankful. Conceit is self-given; be careful.
+- `Havelock Ellis` - It is on our failures that we base a new and different and better success.
+- `Helen Keller` - Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved.
+- `Helen Keller` - Face your deficiencies and acknowledge them; but do not let them master you. Let them teach you patience, sweetness, insight.
+- `Helen Keller` - Keep yourself to the sunshine and you cannot see the shadow.
+- `Helen Keller` - Never bend your head. Always hold it high. Look the world right in the eye.
+- `Helen Keller` - No pessimist ever discovered the secrets of the stars, or sailed to an uncharted land, or opened a new heaven to the human spirit.
+- `Helen Keller` - Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence.
+- `Helen Keller` - The best and most beautiful things in the world cannot be seen, nor touched... but are felt in the heart.
+- `Helen Keller` - The most beautiful things in the world cannot be seen or even touched. They must be felt with the heart.
+- `Helen Keller` - Walking with a friend in the dark is better than walking alone in the light.
+- `Helen Keller` - We could never learn to be brave and patient if there were only joy in the world.
+- `Helen Keller` - When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
+- `Helmut Schmidt` - The biggest room in the world is room for improvement.
+- `Henri Bergson` - The eye sees only what the mind is prepared to comprehend.
+- `Henri Bergson` - Think like a man of action; act like a man of thought.
+- `Henri Bergson` - To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
+- `Henri Nouwen` - The friend who can be silent with us in a moment of despair or confusion, who can stay with us in an hour of grief and bereavement, who can tolerate not knowing... not healing, not curing... that is a friend who cares.
+- `Henri Poincaré` - It is through science that we prove, but through intuition that we discover.
+- `Henri-Frédéric Amiel` - Almost everything comes from nothing.
+- `Henri-Frédéric Amiel` - So long as a person is capable of self-renewal they are a living being.
+- `Henri-Frédéric Amiel` - Without passion man is a mere latent force and possibility, like the flint which awaits the shock of the iron before it can give forth its spark.
+- `Henri-Frédéric Amiel` - Work while you have the light. You are responsible for the talent that has been entrusted to you.
+- `Henry Adams` - A friend in power is a friend lost.
+- `Henry David Thoreau` - A man cannot be said to succeed in this life who does not satisfy one friend.
+- `Henry David Thoreau` - All this worldly wisdom was once the unamiable heresy of some wise man.
+- `Henry David Thoreau` - Friends... they cherish one another's hopes. They are kind to one another's dreams.
+- `Henry David Thoreau` - I cannot make my days longer, so I strive to make them better.
+- `Henry David Thoreau` - I had three chairs in my house; one for solitude, two for friendship, three for society.
+- `Henry David Thoreau` - If one advances confidently in the direction of his dream, and endeavors to live the life which he had imagines, he will meet with a success unexpected in common hours.
+- `Henry David Thoreau` - Ignorance and bungling with love are better than wisdom and skill without.
+- `Henry David Thoreau` - It is a characteristic of wisdom not to do desperate things.
+- `Henry David Thoreau` - It's not what you look at that matters, it's what you see.
+- `Henry David Thoreau` - The language of friendship is not words but meanings.
+- `Henry David Thoreau` - The most I can do for my friend is simply be his friend.
+- `Henry David Thoreau` - The only way to tell the truth is to speak with kindness. Only the words of a loving man can be heard.
+- `Henry David Thoreau` - The world is but a canvas to the imagination.
+- `Henry David Thoreau` - Things do not change; we change.
+- `Henry David Thoreau` - True friendship can afford true knowledge. It does not depend on darkness and ignorance.
+- `Henry Ford` - If you think you can, you can. And if you think you can't, you're right.
+- `Henry Ford` - My best friend is the one who brings out the best in me.
+- `Henry Ford` - Obstacles are those frightful things you see when you take your eyes off your goal.
+- `Henry Ford` - Quality means doing it right when no one is looking.
+- `Henry Ford` - Whether you think you can or you think you can't, you are right.
+- `Henry J. Kaiser` - Trouble is only opportunity in work clothes.
+- `Henry James` - Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.
+- `Henry James` - Three things in human life are important. The first is to be kind. The second is to be kind. The third is to be kind.
+- `Henry K. Beecher` - Gratitude is the fairest blossom which springs from the soul.
+- `Henry Miller` - The moment one gives close attention to anything, even a blade of grass, it becomes a mysterious, awesome, indescribably magnificent world in itself.
+- `Henry Miller` - The moment one gives close attention to anything, it becomes a mysterious, awesome, indescribably magnificent world in itself.
+- `Henry Moore` - There is no retirement for an artist, it's your way of living so there is no end to it.
+- `Henry Reed` - Intuition is the very force or activity of the soul in its experience through whatever has been the experience of the soul itself.
+- `Henry Wadsworth Longfellow` - He that respects himself is safe from others; he wears a coat of mail that none can pierce.
+- `Henry Wadsworth Longfellow` - Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
+- `Henry Ward Beecher` - Every artist dips his brush in his own soul, and paints his own nature into his pictures.
+- `Henry Ward Beecher` - It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
+- `Henry Ward Beecher` - There is no friendship, no love, like that of the parent for the child.
+- `Henry Ward Beecher` - We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+- `Henry van Dyke Jr.` - A friend is what the heart needs all the time.
+- `Henry van Dyke Jr.` - Be glad of life because it gives you the chance to love, to work, to play, and to look up at the stars.
+- `Henry van Dyke Jr.` - Use what talents you possess; the woods would be very silent if no birds sang there except those that sang best.
+- `Heraclitus` - All is flux; nothing stays still.
+- `Heraclitus` - There is nothing permanent except change.
+- `Heraclitus` - You cannot step twice into the same river, for other waters are continually flowing in.
+- `Herbert Bayard Swope` - I cannot give you the formula for success, but I can give you the formula for failure: which is: Try to please everybody.
+- `Herbert Hoover` - Wisdom often times consists of knowing what to do next.
+- `Herman Melville` - Friendship at first sight, like love at first sight, is said to be the only truth.
+- `Hermann Hesse` - If I know what love is, it is because of you.
+- `Hermann Hesse` - Wisdom is nothing but a preparation of the soul, a capacity, a secret art of thinking, feeling and breathing thoughts of unity at every moment of life.
+- `Herodotus` - Of all possessions a friend is the most precious.
+- `Holly Near` - If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
+- `Honoré de Balzac` - The smallest flower is a thought, a life answering to some feature of the Great Whole, of whom they have a persistent intuition.
+- `Honoré de Balzac` - When you doubt your power, you give power to your doubt.
+- `Horace` - A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
+- `Horace` - Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
+- `Horace` - Begin, be bold, and venture to be wise.
+- `Hubert Humphrey` - The greatest gift of life is friendship, and I have received it.
+- `Hubert Humphrey` - The greatest healing therapy is friendship and love.
+- `Hugh Jackman` - The word philosophy sounds high-minded, but it simply means the love of wisdom. If you love something, you don't just read about it; you hug it, you mess with it, you play with it, you argue with it.
+- `Hugh Miller` - Problems are only opportunities with thorns on them.
+- `Immanuel Kant` - All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+- `Immanuel Kant` - Science is organized knowledge. Wisdom is organized life.
+- `Indira Gandhi` - You can't shake hands with a clenched fist.
+- `Iris Murdoch` - Between saying and doing, many a pair of shoes is worn out.
+- `Iris Murdoch` - We can only learn to love by loving.
+- `Isaac Asimov` - A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.
+- `Isaac Asimov` - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.
+- `Isaac D'Israeli` - The wisdom of the wise, and the experience of ages, may be preserved by quotation.
+- `Isocrates` - Be slow to fall into friendship; but when thou art in, continue firm and constant.
+- `Isocrates` - I decided that it was not wisdom that enabled poets to write their poetry, but a kind of instinct or inspiration, such as you find in seers and prophets who deliver all their sublime messages without knowing in the least what they mean.
+- `Isocrates` - The noblest worship is to make yourself as good and as just as you can.
+- `Isocrates` - The only true wisdom is in knowing you know nothing.
+- `Isocrates` - True knowledge exists in knowing that you know nothing.
+- `Isocrates` - True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.
+- `Ivy Baker Priest` - The world is round and the place which may seem like the end may also be the beginning.
+- `J. M. Barrie` - We never understand how little we need in this world until we know the loss of it.
+- `J. R. R. Tolkien` - Not all those who wander are lost.
+- `J. Willard Marriott` - Good timber does not grow with ease; the stronger the wind, the stronger the trees.
+- `Jack Buck` - Things turn out best for those who make the best of the way things turn out.
+- `Jack Dixon` - If you focus on results, you will never change. If you focus on change, you will get results.
+- `James A. Yorke` - The most successful people are those who are good at plan B.
+- `James F. Byrnes` - Friendship without self-interest is one of the rare and beautiful things of life.
+- `James Freeman Clarke` - We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
+- `James Gleick` - As a technology, the book is like a hammer. That is to say, it is perfect: a tool ideally suited to its task. Hammers can be tweaked and varied but will never go obsolete. Even when builders pound nails by the thousand with pneumatic nail guns, every household needs a hammer.
+- `James M. Beggs` - Before you put on a frown, make absolutely sure there are no smiles available.
+- `James Oppenheim` - The foolish man seeks happiness in the distance, the wise grows it under his feet.
+- `Jane Addams` - Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+- `Jane Addams` - Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.
+- `Jane Austen` - Business, you know, may bring you money, but friendship hardly ever does.
+- `Jane Austen` - Friendship is certainly the finest balm for the pangs of disappointed love.
+- `Jane Austen` - There is no charm equal to tenderness of heart.
+- `Jane Roberts` - By accepting yourself and being fully what you are, your presence can make others happy.
+- `Jane Wyman` - The opportunity for brotherhood presents itself every time you meet a human being.
+- `Janet Jackson` - In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don't let your eyes deceive you.
+- `Janis Joplin` - Don't compromise yourself. You are all you've got.
+- `Jared Diamond` - Technology has to be invented or adopted.
+- `Jawaharlal Nehru` - A leader or a man of action in a crisis almost always acts subconsciously and then thinks of the reasons for his action.
+- `Jean Antoine Petit-Senn` - Not what we have but what we enjoy constitutes our abundance.
+- `Jean Cocteau` - The extreme limit of wisdom, that's what the public calls madness.
+- `Jean François Paul de Gondi` - A man who doesn't trust himself can never really trust anyone else.
+- `Jean de La Bruyère` - Love and friendship exclude each other.
+- `Jean de La Bruyère` - Two persons cannot long be friends if they cannot forgive each other's little failings.
+- `Jean de La Fontaine` - Rare as is true love, true friendship is rarer.
+- `Jean de La Fontaine` - Sadness flies away on the wings of time.
+- `Jean-Jacques Rousseau` - What wisdom can you find that is greater than kindness?
+- `Jean-Paul Sartre` - Commitment is an act, not a word.
+- `Jean-Paul Sartre` - Freedom is what you do with what's been done to you.
+- `Jean-Paul Sartre` - Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
+- `Jean-Paul Sartre` - The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
+- `Jerome` - Good, better, best. Never let it rest. ‘Til your good is better and your better is best.
+- `Jerome` - The friendship that can cease has never been real.
+- `Jerome` - True friendship ought never to conceal what it thinks.
+- `Jessamyn West` - It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
+- `Jim Elliot` - He is no fool who gives what he cannot keep to gain what he cannot lose.
+- `Jim Morrison` - A friend is someone who gives you total freedom to be yourself.
+- `Jim Rohn` - Discipline is the bridge between goals and accomplishment.
+- `Jim Rohn` - Either you run the day or the day runs you.
+- `Jim Rohn` - Give whatever you are doing and whoever you are with the gift of your attention.
+- `Jim Rohn` - If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.
+- `Jim Rohn` - Learning is the beginning of wealth. Learning is the beginning of health. Learning is the beginning of spirituality. Searching and learning is where the miracle process all begins.
+- `Jim Rohn` - The more you care, the stronger you can be.
+- `Jimi Hendrix` - Knowledge speaks, but wisdom listens.
+- `Jimmy Dean` - I can't change the direction of the wind, but I can adjust my sails to always reach my destination.
+- `Joan Didion` - To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.
+- `Joan Rivers` - Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present.
+- `Joe Namath` - If you aren't going all the way, why go at all?
+- `Joe Paterno` - Believe deep down in your heart that you're destined to do great things.
+- `Johann Kaspar Lavater` - Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+- `Johann Wolfgang von Goethe` - A man sees in the world what he carries in his heart.
+- `Johann Wolfgang von Goethe` - A really great talent finds its happiness in execution.
+- `Johann Wolfgang von Goethe` - Character develops itself in the stream of life.
+- `Johann Wolfgang von Goethe` - Correction does much, but encouragement does more.
+- `Johann Wolfgang von Goethe` - Difficulties increase the nearer we get to the goal.
+- `Johann Wolfgang von Goethe` - If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
+- `Johann Wolfgang von Goethe` - Ignorant men raise questions that wise men answered a thousand years ago.
+- `Johann Wolfgang von Goethe` - In the end we retain from our studies only that which we practically apply.
+- `Johann Wolfgang von Goethe` - Just trust yourself, then you will know how to live.
+- `Johann Wolfgang von Goethe` - Kindness is the golden chain by which society is bound together.
+- `Johann Wolfgang von Goethe` - Knowing is not enough; we must apply!
+- `Johann Wolfgang von Goethe` - Mountains cannot be surmounted except by winding paths.
+- `Johann Wolfgang von Goethe` - People are so constituted that everybody would rather undertake what they see others do, whether they have an aptitude for it or not.
+- `Johann Wolfgang von Goethe` - Sometimes our fate resembles a fruit tree in winter. Who would think that those branches would turn green again and blossom, but we hope it, we know it.
+- `Johann Wolfgang von Goethe` - The person born with a talent they are meant to use will find their greatest happiness in using it.
+- `Johann Wolfgang von Goethe` - The really unhappy person is the one who leaves undone what they can do, and starts doing what they don't understand; no wonder they come to grief.
+- `Johann Wolfgang von Goethe` - The way you see people is the way you treat them, and the way you treat them is what they become.
+- `Johann Wolfgang von Goethe` - Treat people as if they were what they ought to be, and you help them to become what they are capable of being.
+- `Johann Wolfgang von Goethe` - What is not started today is never finished tomorrow.
+- `Johann Wolfgang von Goethe` - Wherever a man may happen to turn, whatever a man may undertake, he will always end up by returning to the path which nature has marked out for him.
+- `Johann Wolfgang von Goethe` - Wisdom is found only in truth.
+- `John Acosta` - You cannot have what you do not want.
+- `John Adams` - Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
+- `John Astin` - There are things so deep and complex that only intuition can reach it in our stage of development as human beings.
+- `John Barrymore` - Happiness often sneaks in through a door you didn't know you left open.
+- `John Bercow` - Even youngish men can acquire wisdom as time goes by.
+- `John Berry` - The bird of paradise alights only upon the hand that does not grasp.
+- `John Brunner` - It's supposed to be automatic, but actually you have to push this button.
+- `John Burroughs` - The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
+- `John Burroughs` - The smallest deed is better than the greatest intention.
+- `John Burroughs` - Wisdom cannot come by railroad or automobile or airplane or be hurried up by telegraph or telephone.
+- `John C. Maxwell` - A leader is one who knows the way, goes the way, and shows the way.
+- `John C. Maxwell` - A man must be big enough to admit his mistakes, smart enough to profit from them, and strong enough to correct them.
+- `John Cleese` - Technology frightens me to death. It's designed by engineers to impress other engineers. And they always come with instruction booklets that are written by engineers for other engineers — which is why almost no technology ever works.
+- `John Dewey` - Arriving at one point is the starting point to another.
+- `John Dewey` - Conflict is the gadfly of thought. It stirs us to observation and memory. It instigates to invention. It shocks us out of sheeplike passivity, and sets us at noting and contriving.
+- `John Dewey` - Every great advance in science has issued from a new audacity of the imagination.
+- `John Dewey` - The self is not something ready-made, but something in continuous formation through choice of action.
+- `John Dewey` - Without some goals and some efforts to reach it, no man can live.
+- `John Dryden` - A thing well said will be wit in all languages.
+- `John Dryden` - Fortune befriends the bold.
+- `John Eliot` - All the great performers I have worked with are fueled by a personal dream.
+- `John F. Kennedy` - As we express our gratitude, we must never forget that the highest appreciation is not to utter words, but to live by them.
+- `John F. Kennedy` - Change is the law of life. And those who look only to the past or present are certain to miss the future.
+- `John F. Kennedy` - I look forward to a great future for America - a future in which our country will match its military strength with our moral restraint, its wealth with our wisdom, its power with our purpose.
+- `John F. Kennedy` - Let us resolve to be masters, not the victims, of our history, controlling our own destiny without giving way to blind suspicions and emotions.
+- `John F. Kennedy` - The greater our knowledge increases the more our ignorance unfolds.
+- `John F. Kennedy` - The time to repair the roof is when the sun is shining.
+- `John F. Kennedy` - Those who dare to fail miserably can achieve greatly.
+- `John F. Kennedy` - When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.
+- `John Galsworthy` - Love has no age, no limit; and no death.
+- `John Junor` - An ounce of emotion is equal to a ton of facts.
+- `John Keats` - I love you the more in that I believe you had liked me for my own sake and for nothing else.
+- `John Keats` - I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+- `John Lasseter` - The art challenges the technology, and the technology inspires the art.
+- `John Lennon` - Life is what happens to you while you're busy making other plans.
+- `John Lennon` - Life is what happens while you are making other plans.
+- `John Lennon` - Love is the flower you've got to let grow.
+- `John Lennon` - Reality leaves a lot to the imagination.
+- `John Lennon` - Time you enjoy wasting, was not wasted.
+- `John Lennon` - Time you enjoyed wasting was not wasted.
+- `John Lennon` - Yeah, we all shine on, like the moon, and the stars, and the sun.
+- `John Lennon` - You may say I'm a dreamer, but I'm not the only one, I hope someday you will join us, and the world will live as one.
+- `John Locke` - A friendship founded on business is better than a business founded on friendship.
+- `John Locke` - I have always thought the actions of men the best interpreters of their thoughts.
+- `John Locke` - If you want to succeed you should strike out on new paths, rather than travel the worn paths of accepted success.
+- `John Lubbock` - A day of worry is more exhausting than a day of work.
+- `John Lubbock` - What we see depends mainly on what we look for.
+- `John Marshall` - To listen well is as powerful a means of communication and influence as to talk well.
+- `John McCain` - Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.
+- `John Muir` - In every walk with nature, one receives far more than he seeks.
+- `John Muir` - When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+- `John Pierrakos` - Life is movement-we breathe, we eat, we walk, we move!
+- `John Powell` - The only real mistake is the one from which we learn nothing.
+- `John Quincy Adams` - If your actions inspire others to dream more, learn more, do more and become more, you are a leader.
+- `John Ruskin` - Quality is never an accident; it is always the result of intelligent effort.
+- `John Ruskin` - Sunshine is delicious, rain is refreshing, wind braces us up, snow is exhilarating; there is really no such thing as bad weather, only different kinds of good weather.
+- `John Steinbeck` - If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
+- `John Steinbeck` - It is a common experience that a problem difficult at night is resolved in the morning after the committee of sleep has worked on it.
+- `John Updike` - Dreams come true. Without that possibility, nature would not incite us to have them.
+- `John Wooden` - Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.
+- `John Wooden` - It's the little details that are vital. Little things make big things happen.
+- `John Wooden` - Never mistake activity for achievement.
+- `John Wooden` - Talent is God given. Be humble. Fame is man-given. Be grateful. Conceit is self-given. Be careful.
+- `John Wooden` - Whatever you do in life, surround yourself with smart people who'll argue with you.
+- `John Wooden` - You can't let praise or criticism get to you. It's a weakness to get caught up in either one.
+- `Jon Kabat-Zinn` - You can't stop the waves, but you can learn to surf.
+- `Jonas Salk` - Intuition will tell the thinking mind where to look next.
+- `Jonathan Kozol` - Pick battles big enough to matter, small enough to win.
+- `Jonathan Swift` - Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
+- `Joseph Addison` - True happiness arises, in the first place, from the enjoyment of oneself, and in the next, from the friendship and conversation of a few select companions.
+- `Joseph Campbell` - Love is a friendship set to music.
+- `Joseph Campbell` - When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
+- `Joseph Campbell` - Your sacred space is where you can find yourself again and again.
+- `Joseph Joubert` - He who has imagination without learning has wings but no feet.
+- `Joseph Prince` - As you walk in God's divine wisdom, you will surely begin to see a greater measure of victory and good success in your life.
+- `Joseph Roux` - A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
+- `Joseph Stalin` - I believe in one thing only, the power of human will.
+- `Joseph Wood Krutch` - Technology made large populations possible; large populations now make technology indispensable.
+- `Josh Billings` - Wisdom has never made a bigot, but learning has.
+- `Joyce Brothers` - Trust your hunches. They're usually based on facts filed away just below the conscious level.
+- `Joyce Meyer` - Many sophisticated, intelligent people lack wisdom and common sense.
+- `Judy Collins` - I think people who are creative are the luckiest people on earth. I know that there are no shortcuts, but you must keep your faith in something Greater than you and keep doing what you love. Do what you love, and you will find the way to get it out to the world.
+- `Judy Garland` - Always be a first-rate version of yourself, instead of a second-rate version of somebody else.
+- `Judy Garland` - For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
+- `Julian Casablancas` - Vanity can easily overtake wisdom. It usually overtakes common sense.
+- `Julie Morgenstern` - Some people thrive on huge, dramatic change. Some people prefer the slow and steady route. Do what's right for you.
+- `Kahlil Gibran` - A little knowledge that acts is worth infinitely more than much knowledge that is idle.
+- `Kahlil Gibran` - Be like the flower, turn your face to the sun.
+- `Kahlil Gibran` - Beauty is not in the face; beauty is a light in the heart.
+- `Kahlil Gibran` - Friendship is always a sweet responsibility, never an opportunity.
+- `Kahlil Gibran` - In the sweetness of friendship let there be laughter and sharing of pleasures. For in the dew of little things the heart finds its morning and is refreshed.
+- `Kahlil Gibran` - Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
+- `Kahlil Gibran` - Let there be no purpose in friendship save the deepening of the spirit.
+- `Kahlil Gibran` - Life without love is like a tree without blossoms or fruit.
+- `Kahlil Gibran` - Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.
+- `Kahlil Gibran` - The teacher who is indeed wise does not bid you to enter the house of his wisdom but rather leads you to the threshold of your mind.
+- `Kahlil Gibran` - To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to do.
+- `Kahlil Gibran` - We choose our joys and sorrows long before we experience them.
+- `Kahlil Gibran` - Wisdom ceases to be wisdom when it becomes too proud to weep, too grave to laugh, and too selfish to seek other than itself.
+- `Kahlil Gibran` - Your friend is your needs answered.
+- `Karl Menninger` - Love cures people - both the ones who give it and the ones who receive it.
+- `Katherine Mansfield` - Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy; you can't build on it; it's only for wallowing in.
+- `Kathleen Norris` - All that is necessary is to accept the impossible, do without the indispensable, and bear the intolerable.
+- `Kenji Miyazawa` - We must embrace pain and burn it as fuel for our journey.
+- `Kin Hubbard` - You won't skid if you stay in a rut.
+- `Kurt Vonnegut` - I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.
+- `Laozi` - A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
+- `Laozi` - All difficult things have their origin in that which is easy, and great things in that which is small.
+- `Laozi` - An ant on the move does more than a dozing ox
+- `Laozi` - Anticipate the difficult by managing the easy.
+- `Laozi` - At the center of your being, you have the answer; you know who you are, and you know what you want.
+- `Laozi` - Be the chief but never the lord.
+- `Laozi` - By letting it go it all gets done. The world is won by those who let it go. But when you try and try. The world is beyond the winning.
+- `Laozi` - Do the difficult things while they are easy and do the great things while they are small. A journey of a thousand miles must begin with a single step.
+- `Laozi` - Doing nothing is better than being busy doing nothing.
+- `Laozi` - From wonder into wonder existence opens.
+- `Laozi` - Give a man a fish and you feed him for a day. Teach him how to fish and you feed him for a lifetime.
+- `Laozi` - Great acts are made up of small deeds.
+- `Laozi` - Great indeed is the sublimity of the Creative, to which all beings owe their beginning, and which permeates all heaven.
+- `Laozi` - He who conquers others is strong; He who conquers himself is mighty.
+- `Laozi` - He who controls others may be powerful, but he who has mastered himself is mightier still.
+- `Laozi` - He who is contented is rich.
+- `Laozi` - He who knows himself is enlightened.
+- `Laozi` - He who knows others is wise. He who knows himself is enlightened.
+- `Laozi` - He who knows that enough is enough will always have enough.
+- `Laozi` - He who knows, does not speak. He who speaks, does not know.
+- `Laozi` - He who talks more is sooner exhausted.
+- `Laozi` - I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
+- `Laozi` - If you correct your mind, the rest of your life will fall into place.
+- `Laozi` - If you do not change direction, you may end up where you are heading.
+- `Laozi` - If you would take, you must first give, this is the beginning of intelligence.
+- `Laozi` - In dwelling, live close to the ground. In thinking, keep to the simple. In conflict, be fair and generous. In governing, don't try to control. In work, do what you enjoy. In family life, be completely present.
+- `Laozi` - Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.
+- `Laozi` - Knowing others is wisdom, knowing yourself is Enlightenment.
+- `Laozi` - Music in the soul can be heard by the universe.
+- `Laozi` - Nothing is softer or more flexible than water, yet nothing can resist it.
+- `Laozi` - One who is too insistent on his own views, finds few to agree with him.
+- `Laozi` - Silence is a source of great strength.
+- `Laozi` - The journey of a thousand miles begins with one step.
+- `Laozi` - The key to growth is the introduction of higher dimensions of consciousness into our awareness.
+- `Laozi` - The power of intuitive understanding will protect you from harm until the end of your days.
+- `Laozi` - The wise man does not lay up his own treasures. The more he gives to others, the more he has for his own.
+- `Laozi` - To lead people walk behind them.
+- `Laozi` - To see things in the seed, that is genius.
+- `Laozi` - When I let go of what I am, I become what I might be.
+- `Laozi` - When you are content to be simply yourself and don't compare or compete, everybody will respect you.
+- `Laozi` - When you realize there is nothing lacking, the whole world belongs to you.
+- `Larry Elder` - A goal without a plan is just a wish.
+- `Larry Niven` - Ethics change with technology.
+- `Larry Page` - If you're changing the world, you're working on important things. You're excited to get up in the morning.
+- `Lauren Bacall` - Imagination is the highest kite one can fly.
+- `Laurence J. Peter` - If you don't know where you are going, you will probably end up somewhere else.
+- `Laurence J. Peter` - Life is a travelling to the edge of knowledge, then a leap taken.
+- `Laurence J. Peter` - There are two kinds of failures: those who thought and never did, and those who did and never thought.
+- `Laurence J. Peter` - You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
+- `Laurie Anderson` - Technology is the campfire around which we tell our stories.
+- `Len Wein` - A true friend is someone who is there for you when he'd rather be anywhere else.
+- `Lena Horne` - Always be smarter than the people who hire you.
+- `Leo Buscaglia` - A single rose can be my garden... a single friend, my world.
+- `Leo Buscaglia` - Don't smother each other. No one can grow in the shade.
+- `Leo Buscaglia` - Never idealize others. They will never live up to your expectations.
+- `Leo Buscaglia` - Your talent is God's gift to you. What you do with it is your gift back to God.
+- `Leo Tolstoy` - Everyone thinks of changing the world, but no one thinks of changing himself.
+- `Leo Tolstoy` - The two most powerful warriors are patience and time.
+- `Leo Tolstoy` - We lost because we told ourselves we lost.
+- `Leonard Nimoy` - Logic is the beginning of wisdom, not the end.
+- `Leonardo da Vinci` - All our knowledge has its origins in our perceptions.
+- `Leonardo da Vinci` - He who is fixed to a star does not change his mind.
+- `Leonardo da Vinci` - I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
+- `Leonardo da Vinci` - In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+- `Leonardo da Vinci` - Iron rusts from disuse; water loses its purity from stagnation... even so does inaction sap the vigor of the mind.
+- `Leonardo da Vinci` - It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things.
+- `Leonardo da Vinci` - It's easier to resist at the beginning than at the end.
+- `Leonardo da Vinci` - Learning never exhausts the mind.
+- `Leonardo da Vinci` - Nothing strengthens authority so much as silence.
+- `Leonardo da Vinci` - Time stays long enough for anyone who will use it.
+- `Leonardo da Vinci` - Who sows virtue reaps honor.
+- `Lewis Carroll` - If you don't know where you are going, any road will get you there.
+- `Lewis Cass` - People may doubt what you say, but they will believe what you do.
+- `Libby Larsen` - The great myth of our times is that technology is communication.
+- `Liberace` - Nobody will believe in you unless you believe in yourself.
+- `Lily Tomlin` - I always wanted to be somebody, but I should have been more specific.
+- `Lin Yutang` - I have done my best: that is about all the philosophy of living one needs.
+- `Lisa Alther` - That's the risk you take if you change: that people you've been involved with won't like the new you. But other people who do will come along.
+- `Lord Byron` - Friendship is Love without his wings!
+- `Lord Byron` - Friendship may, and often does, grow into love, but love never subsides into friendship.
+- `Lord Byron` - Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+- `Loretta Young` - Love isn't something you find. Love is something that finds you.
+- `Lou Holtz` - Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
+- `Lou Holtz` - I can't believe that God put us on this earth to be ordinary.
+- `Lou Holtz` - You were not born a winner, and you were not born a loser. You are what you make yourself be.
+- `Louis Pasteur` - Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
+- `Louisa May Alcott` - I'm not afraid of storms, for I'm learning how to sail my ship.
+- `Louise Hay` - The thoughts we choose to think are the tools we use to paint the canvas of our lives.
+- `Lucille Ball` - I have an everyday religion that works for me. Love yourself first, and everything else falls into line.
+- `Lucille Ball` - I'd rather regret the things I've done than regret the things I haven't done.
+- `Lucille Ball` - I'd rather regret the things that I have done than the things that I have not done.
+- `Lucille Ball` - In life, all good things come hard, but wisdom is the hardest to come by.
+- `Lucille Ball` - Love yourself first and everything else falls into line. You really have to love yourself to get anything done in this world.
+- `Lucretius` - The fall of dropping water wears away the Stone.
+- `Ludwig van Beethoven` - Music is a higher revelation than all wisdom and philosophy.
+- `Léon Blum` - The free man is he who does not fear to go to the end of his thought.
+- `M. Scott Peck` - Until you value yourself, you won't value your time. Until you value your time, you won't do anything with it.
+- `Mahatma Gandhi` - Be the change that you want to see in the world.
+- `Mahatma Gandhi` - Forgiveness is choosing to love. It is the first skill of self-giving love.
+- `Mahatma Gandhi` - Freedom is not worth having if it does not connote freedom to err.
+- `Mahatma Gandhi` - Happiness is when what you think, what you say, and what you do are in harmony.
+- `Mahatma Gandhi` - It is the quality of our work which will please God, not the quantity.
+- `Mahatma Gandhi` - It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
+- `Mahatma Gandhi` - Our greatness lies not so much in being able to remake the world as being able to remake ourselves.
+- `Mahatma Gandhi` - Strength does not come from physical capacity. It comes from an indomitable will.
+- `Mahatma Gandhi` - The difference between what we do and what we are capable of doing would suffice to solve most of the world's problems.
+- `Mahatma Gandhi` - The weak can never forgive. Forgiveness is the attribute of the strong.
+- `Mahatma Gandhi` - We must become the change we want to see.
+- `Mahatma Gandhi` - Where there is love there is life.
+- `Man Ray` - It has never been my object to record my dreams, just to realize them.
+- `Man Ray` - Technology is anything that wasn't around when you were born.
+- `Manuel Puig` - I allow my intuition to lead my path.
+- `Mao Zedong` - The differences between friends cannot but reinforce their friendship.
+- `Marcel Proust` - Let us be grateful to people who make us happy; they are the charming gardeners who make our souls blossom.
+- `Marcel Proust` - We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
+- `Marcia Fudge` - We respect our elders. There is wisdom that comes from experience, and I am not going to stop learning from wise counsel.
+- `Marcus Aurelius` - Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.
+- `Marcus Aurelius` - Each day provides its own gifts.
+- `Marcus Aurelius` - Everything that exists is in a manner the seed of that which will be.
+- `Marcus Aurelius` - Everything that happens as it should, and if you observe carefully, you will find this to be so.
+- `Marcus Aurelius` - Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth.
+- `Marcus Aurelius` - He who lives in harmony with himself lives in harmony with the universe.
+- `Marcus Aurelius` - He who lives in harmony with himself lives in harmony with the world.
+- `Marcus Aurelius` - If it is not right do not do it; if it is not true do not say it.
+- `Marcus Aurelius` - Look back over the past, with its changing empires that rose and fell, and you can foresee the future, too.
+- `Marcus Aurelius` - Loss is nothing else but change, and change is Nature's delight.
+- `Marcus Aurelius` - The universe is transformation; our life is what our thoughts make it.
+- `Marcus Aurelius` - There is nothing happens to any person but what was in his power to go through with.
+- `Marcus Aurelius` - Very little is needed to make a happy life; it is all within yourself, in your way of thinking.
+- `Marcus Aurelius` - Waste no more time arguing about what a good man should be. Be one.
+- `Margaret Chase Smith` - The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+- `Margaret Cousins` - Appreciation can make a day, even change a life. Your willingness to put it into words is all that is necessary.
+- `Margaret Fuller` - If you have knowledge, let others light their candles in it.
+- `Margaret Laurence` - Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
+- `Margaret Mead` - Always remember that you are absolutely unique. Just like everyone else.
+- `Margaret Mead` - Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.
+- `Margaret Thatcher` - If you set out to be liked, you would be prepared to compromise on anything at any time, and you would achieve nothing.
+- `Margaret Thatcher` - To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
+- `Maria Montessori` - Everyone in the world ought to do the things for which he is specially adapted. It is the part of wisdom to recognize what each one of us is best fitted for, and it is the part of education to perfect and utilize such predispositions. Because education can direct and aid nature but can never transform her.
+- `Maria Shriver` - When the world is so complicated, the simple gift of friendship is within all of our hands.
+- `Marian Wright Edelman` - You really can change the world if you care enough.
+- `Marian Wright Edelman` - You're not obligated to win. You're obligated to keep trying to do the best you can every day.
+- `Marianne Williamson` - Joy is what happens to us when we allow ourselves to recognize how good things really are.
+- `Marie Curie` - Be less curious about people and more curious about ideas.
+- `Marie Curie` - I never see what has been done; I only see what remains to be done.
+- `Marie Curie` - Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.
+- `Marie Curie` - Nothing in life is to be feared. It is only to be understood.
+- `Mariella Frostrup` - Every friendship goes through ups and downs. Dysfunctional patterns set in; external situations cause internal friction; you grow apart and then bounce back together.
+- `Mariella Frostrup` - In romance, we feel the need to zoom in and expound on our partner's foibles in intimate detail; in friendship, we tend to do the opposite, avoiding confrontation through fear, lethargy or both.
+- `Mariella Frostrup` - Sustaining true friendship is a lot more challenging than we give it credit for.
+- `Marilyn Monroe` - Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.
+- `Marilyn Monroe` - I'm selfish, impatient and a little insecure. I make mistakes, I am out of control and at times hard to handle. But if you can't handle me at my worst, then you sure as hell don't deserve me at my best.
+- `Marilyn vos Savant` - To acquire knowledge, one must study; but to acquire wisdom, one must observe.
+- `Mark Goulston` - Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.
+- `Mark Twain` - A thing long expected takes the form of the unexpected when at last it comes.
+- `Mark Twain` - Always tell the truth. That way, you don't have to remember what you said.
+- `Mark Twain` - Kindness is the language which the deaf can hear and the blind can see.
+- `Mark Twain` - The exercise of an extraordinary gift is the supremist pleasure in life.
+- `Mark Twain` - The secret of getting ahead is getting started.
+- `Mark Twain` - There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
+- `Mark Twain` - To get the full value of joy you must have someone to divide it with.
+- `Mark Twain` - Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
+- `Mark Twain` - When in doubt, tell the truth.
+- `Mark Twain` - Whoever is happy will make others happy, too.
+- `Mark Twain` - Wrinkles should merely indicate where smiles have been.
+- `Marsha Petrie Sue` - Stay away from what might have been and look at what will be.
+- `Martha Washington` - The greatest part of our happiness depends on our dispositions, not our circumstances.
+- `Martin Luther King Jr.` - Life's most persistent and urgent question is, 'What are you doing for others?'
+- `Martin Luther King Jr.` - Love is the only force capable of transforming an enemy into a friend.
+- `Martin Luther King Jr.` - Science investigates; religion interprets. Science gives man knowledge which is power; religion gives man wisdom which is control.
+- `Martin Luther King Jr.` - That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
+- `Mary Kay Ash` - Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.
+- `Mary Kay Ash` - For every failure, there's an alternative course of action. You just have to find it. When you come to a roadblock, take a detour.
+- `Mary Kay Ash` - Those who are blessed with the most talent don't necessarily outperform everyone else. It's the people with follow-through who excel.
+- `Mary Pickford` - If you have made mistakes, there is always another chance for you. You may have a fresh start any moment you choose.
+- `Mary Wollstonecraft` - The beginning is always today.
+- `Masayoshi Son` - People usually compare the computer to the head of the human being. I would say that hardware is the bone of the head, the skull. The semiconductor is the brain within the head. The software is the wisdom. And data is the knowledge.
+- `Maureen Dowd` - The minute you settle for less than you deserve, you get even less than you settled for.
+- `Max Frisch` - Technology… the knack of so arranging the world that we don't have to experience it.
+- `Max Planck` - It is not the possession of truth, but the success which attends the seeking after it, that enriches the seeker and brings happiness to him.
+- `May Sarton` - A garden is always a series of losses set against a few triumphs, like life itself.
+- `Maya Angelou` - All great achievements require time.
+- `Maya Angelou` - I believe that every person is born with talent.
+- `Maya Angelou` - I love wisdom. And you can never be great at anything unless you love it. Not be in love with it, but love the thing, admire the thing. And it seems that if you love the thing, and you don't just want to possess it, it will find you.
+- `Maya Angelou` - If one is lucky, a solitary fantasy can totally transform one million realities.
+- `Maya Angelou` - If you don't like something, change it. If you can't change it, change your attitude.
+- `Maya Angelou` - Nothing will work unless you do.
+- `Maya Angelou` - Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
+- `Maya Angelou` - We may encounter many defeats, but we must not be defeated.
+- `Maya Angelou` - When you learn, teach. When you get, give.
+- `Maya Lin` - To fly, we have to have resistance.
+- `Melody Beattie` - Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
+- `Mencius` - Friends are the siblings God never gave us.
+- `Mencius` - Friendship is one mind in two bodies.
+- `Michael Jordan` - If you accept the expectations of others, especially negative ones, then you never will change the outcome.
+- `Michael Jordan` - If you're trying to achieve, there will be roadblocks. I've had them; everybody has had them. But obstacles don't have to stop you. If you run into a wall, don't turn around and give up. Figure out how to climb it, go through it, or work around it.
+- `Michael Korda` - To succeed, we must first believe that we can.
+- `Michel de Montaigne` - I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing.
+- `Michel de Montaigne` - If there is such a thing as a good marriage, it is because it resembles friendship rather than love.
+- `Michel de Montaigne` - The most certain sign of wisdom is cheerfulness.
+- `Michelangelo` - Faith in oneself is the best and safest course.
+- `Michelangelo` - The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.
+- `Michelangelo` - The greatest danger for most of us is not that our aim is too high, and we miss it, but that it is too low, and we reach it.
+- `Michelangelo` - There is no greater harm than that of time wasted.
+- `Michelle Obama` - And I love that even in the toughest moments, when we're all sweating it - when we're worried that the bill won't pass, and it seems like all is lost - Barack never lets himself get distracted by the chatter and the noise. Just like his grandmother, he just keeps getting up and moving forward... with patience and wisdom, and courage and grace.
+- `Michelle Obama` - The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger.
+- `Mignon McLaughlin` - It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
+- `Miguel de Cervantes` - Be slow of tongue and quick of eye.
+- `Miguel de Cervantes` - Those who will play with cats must expect to be scratched.
+- `Mike Ditka` - You're never a loser until you quit trying.
+- `Milton Berle` - If opportunity doesn't knock, build a door.
+- `Molière` - A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.
+- `Molière` - It is not only for what we do that we are held responsible, but also for what we do not do.
+- `Moncure D. Conway` - The best thing in every noble dream is the dreamer...
+- `Montesquieu` - Friendship is an arrangement by which we undertake to exchange small favors for big ones.
+- `Morihei Ueshiba` - Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment.
+- `Morihei Ueshiba` - When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
+- `Morris West` - If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
+- `Mortimer J. Adler` - Friendship is a very taxing and arduous form of leisure activity.
+- `Mortimer J. Adler` - The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
+- `Mother Angelica` - Two of man's basic needs are to love and to share. Both of these needs are satisfied in greater or lesser degree by friendship.
+- `Mother Teresa` - Be faithful in small things because it is in them that your strength lies.
+- `Mother Teresa` - Do not wait for leaders; do it alone, person to person.
+- `Mother Teresa` - Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing.
+- `Mother Teresa` - If you can't feed a hundred people, then feed just one.
+- `Mother Teresa` - Kind words can be short and easy to speak, but their echoes are truly endless.
+- `Mother Teresa` - Let us always meet each other with smile, for the smile is the beginning of love.
+- `Mother Teresa` - Peace begins with a smile.
+- `Mother Teresa` - Spread love everywhere you go. Let no one ever come to you without leaving happier.
+- `Mother Teresa` - We can do no great things, only small things with great love.
+- `Mother Teresa` - We shall never know all the good that a simple smile can do.
+- `Muhammad Ali` - Friendship... is not something you learn in school. But if you haven't learned the meaning of friendship, you really haven't learned anything.
+- `Muhammad Ali` - I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.
+- `Muhammad Ali` - To be able to give away riches is mandatory if you wish to possess them. This is the only way that you will be truly rich.
+- `Muriel Rukeyser` - The universe is made of stories, not atoms.
+- `Murray Gell-Mann` - Think how hard physics would be if particles could think.
+- `Naguib Mahfouz` - You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
+- `Napoleon Hill` - A goal is a dream with a deadline.
+- `Napoleon Hill` - All achievements, all earned riches, have their beginning in an idea.
+- `Napoleon Hill` - Cherish your visions and your dreams as they are the children of your soul; the blueprints of your ultimate achievements.
+- `Napoleon Hill` - Don't wait. The time will never be just right.
+- `Napoleon Hill` - Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.
+- `Napoleon Hill` - Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
+- `Napoleon Hill` - Fears are nothing more than a state of mind.
+- `Napoleon Hill` - First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.
+- `Napoleon Hill` - Happiness is found in doing, not merely possessing.
+- `Napoleon Hill` - Here is one quality that one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
+- `Napoleon Hill` - Ideas are the beginning points of all fortunes.
+- `Napoleon Hill` - If you cannot do great things, do small things in a great way.
+- `Napoleon Hill` - Most great people have attained their greatest success just one step beyond their greatest failure.
+- `Napoleon Hill` - No alibi will save you from accepting the responsibility.
+- `Napoleon Hill` - No man can succeed in a line of endeavor which he does not like.
+- `Napoleon Hill` - Opportunity often comes disguised in the form of misfortune, or temporary defeat.
+- `Napoleon Hill` - The ladder of success is never crowded at the top.
+- `Napoleon Hill` - The world has the habit of making room for the man whose actions show that he knows where he is going.
+- `Napoleon Hill` - There are no limitations to the mind except those we acknowledge.
+- `Napoleon Hill` - When your desires are strong enough you will appear to possess superhuman powers to achieve.
+- `Napoleon Hill` - You can do it if you believe you can!
+- `Napoleon Hill` - You give before you get.
+- `Napoleon Hill` - You might well remember that nothing can bring you success but yourself.
+- `Napoleon Hill` - Your big opportunity may be right where you are now.
+- `Napoleon` - He who fears being conquered is sure of defeat.
+- `Napoleon` - If you want a thing done well, do it yourself.
+- `Napoleon` - Imagination rules the world.
+- `Napoleon` - Never interrupt your enemy when he is making a mistake.
+- `Napoleon` - Take time to deliberate, but when the time for action has arrived, stop thinking and go in.
+- `Napoleon` - The best cure for the body is a quiet mind.
+- `Napoleon` - The truest wisdom is a resolute determination.
+- `Napoleon` - To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.
+- `Napoleon` - Victory belongs to the most persevering.
+- `Nargis Fakhri` - Every friendship is different because everyone's personality is different.
+- `Nathaniel Hawthorne` - Happiness is as a butterfly which, when pursued, is always beyond our grasp, but which if you will sit down quietly, may alight upon you.
+- `Nathaniel Hawthorne` - Our most intimate friend is not he to whom we show the worst, but the best of our nature.
+- `Nathaniel Hawthorne` - The greatest obstacle to being heroic is the doubt whether one may not be going to prove oneself a fool; the truest heroism is to resist the doubt; and the profoundest wisdom, to know when it ought to be resisted, and when it be obeyed.
+- `Neil Gaiman` - The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.
+- `Nelson Mandela` - A good head and a good heart are always a formidable combination.
+- `Nelson Mandela` - And as we let our own light shine, we unconsciously give other people permission to do the same.
+- `Nelson Mandela` - As we are liberated from our own fear, our presence automatically liberates others.
+- `Nelson Mandela` - Education is the most powerful weapon which you can use to change the world.
+- `Nelson Mandela` - If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
+- `Nelson Mandela` - It always seems impossible until it's done.
+- `Nelson Mandela` - There is no passion to be found playing small - in settling for a life that is less than the one you are capable of living.
+- `Nelson Mandela` - There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered.
+- `Niccolò Machiavelli` - Men in general judge more from appearances than from reality. All men have eyes, but few have the gift of penetration.
+- `Niels Bohr` - How wonderful that we have met with a paradox. Now we have some hope of making progress.
+- `Nikola Tesla` - Let the future tell the truth and evaluate each one according to his work and accomplishments. The present is theirs; the future, for which I have really worked, is mine.
+- `Nikola Tesla` - Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+- `Nikos Kazantzakis` - By believing passionately in something that does not yet exist, we create it.
+- `Nora Roberts` - If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
+- `Norman Cousins` - Never deny a diagnosis but do deny the negative verdict that may go with it.
+- `Norman Cousins` - Wisdom consists of the anticipation of consequences.
+- `Norman Douglas` - The pine stays green in winter... wisdom in hardship.
+- `Norman Schwarzkopf` - The truth of the matter is that you always know the right thing to do. The hard part is doing it.
+- `Norman Vincent Peale` - Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.
+- `Norman Vincent Peale` - Change your thoughts and you change your world.
+- `Norman Vincent Peale` - If you want things to be different, perhaps the answer is to become different yourself.
+- `Northrop Frye` - The most technologically efficient machine that man has ever invented is the book.
+- `Octavia E. Butler` - Sometimes being a friend means mastering the art of timing. There is a time for silence. A time to let go and allow people to hurl themselves into their own destiny. And a time to prepare to pick up the pieces when it's all over.
+- `Og Mandino` - Always do your best. What you plant now, you will harvest later.
+- `Og Mandino` - Always seek out the seed of triumph in every adversity.
+- `Og Mandino` - Beginning today, treat everyone you meet as if they were going to be dead by midnight. Extend to them all the care, kindness and understanding you can muster, and do it with no thought of any reward. Your life will never be the same again.
+- `Og Mandino` - Do all things with love.
+- `Og Mandino` - Each misfortune you encounter will carry in it the seed of tomorrows good luck.
+- `Og Mandino` - Failure will never overtake me if my determination to succeed is strong enough.
+- `Og Mandino` - I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.
+- `Og Mandino` - I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
+- `Oliver Wendell Holmes Jr.` - A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.
+- `Oliver Wendell Holmes Jr.` - Fame usually comes to those who are thinking about something else.
+- `Oliver Wendell Holmes Jr.` - It is the province of knowledge to speak, and it is the privilege of wisdom to listen.
+- `Oliver Wendell Holmes Jr.` - Love is the master key that opens the gates of happiness.
+- `Oliver Wendell Holmes Jr.` - The young man knows the rules, but the old man knows the exceptions.
+- `Oliver Wendell Holmes Jr.` - We do not quit playing because we grow old, we grow old because we quit playing.
+- `Oliver Wendell Holmes Jr.` - What lies behind us and what lies before us are small matters compared to what lies within us.
+- `Oprah Winfrey` - Although there may be tragedy in your life, there's always a possibility to triumph. It doesn't matter who you are, where you come from. The ability to triumph begins with you. Always.
+- `Oprah Winfrey` - Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. This is your moment. Own it.
+- `Oprah Winfrey` - Don't settle for a relationship that won't let you be yourself.
+- `Oprah Winfrey` - Follow your instincts. That is where true wisdom manifests itself.
+- `Oprah Winfrey` - I don't believe in failure. It's not failure if you enjoyed the process.
+- `Oprah Winfrey` - I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.
+- `Oprah Winfrey` - If you want your life to be more rewarding, you have to change the way you think.
+- `Oprah Winfrey` - Lots of people want to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.
+- `Oprah Winfrey` - The biggest adventure you can ever take is to live the life of your dreams.
+- `Oprah Winfrey` - With every experience, you alone are painting your own canvas, thought by thought, choice by choice.
+- `Orson Welles` - We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
+- `Oscar Wilde` - Anybody can make history. Only a great man can write it.
+- `Oscar Wilde` - Be yourself; everyone else is already taken.
+- `Oscar Wilde` - Experience is simply the name we give our mistakes.
+- `Oscar Wilde` - He has no enemies, but is intensely disliked by his friends.
+- `Oscar Wilde` - Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.
+- `Oscar Wilde` - The aim of life is self-development. To realize one's nature perfectly - that is what each of us is here for.
+- `Oscar Wilde` - The only thing to do with good advice is to pass it on. It is never of any use to oneself.
+- `Oscar Wilde` - The smallest act of kindness is worth more than the grandest intention.
+- `Oscar Wilde` - True friends stab you in the front.
+- `Ovid` - All things change; nothing perishes.
+- `Ovid` - Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+- `Ovid` - Let your hook always be cast; in the pool where you least expect it, there will be a fish.
+- `Ovid` - Take rest; a field that has rested gives a bountiful crop.
+- `Ovid` - The cause is hidden. The effect is visible to all.
+- `Ovid` - The essence of true friendship is to make allowance for another's little lapses.
+- `P. Chidambaram` - All wisdom does not reside in Delhi.
+- `Paavo Nurmi` - Mind is everything: muscle, pieces of rubber. All that I am, I am because of my mind.
+- `Pablo Picasso` - Action is the foundational key to all success.
+- `Pablo Picasso` - All children are artists. The problem is how to remain an artist once he grows up.
+- `Pablo Picasso` - Computers are useless. They can only give you answers.
+- `Pablo Picasso` - Everything you can imagine is real.
+- `Pablo Picasso` - He can who thinks he can, and he can't who thinks he can't. This is an inexorable, indisputable law.
+- `Pablo Picasso` - I am always doing that which I cannot do, in order that I may learn how to do it.
+- `Pablo Picasso` - I am always doing that which I cannot do, in order that I may learn how to do it.
+- `Pablo Picasso` - I begin with an idea and then it becomes something else.
+- `Pablo Picasso` - Inspiration exists, but it has to find us working.
+- `Pablo Picasso` - Only put off until tomorrow what you are willing to die having left undone.
+- `Paramahansa Yogananda` - There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
+- `Parker Palmer` - America's freedom of religion, and freedom from religion, offers every wisdom tradition an opportunity to address our soul-deep needs: Christianity, Judaism, Islam, Buddhism, Hinduism, secular humanism, agnosticism and atheism among others.
+- `Pat Riley` - Courage is not the absence of fear, but simply moving on with dignity despite that fear.
+- `Paul Cézanne` - The awareness of our own strength makes us modest.
+- `Paul Theroux` - Friendship is also about liking a person for their failings, their weakness. It's also about mutual help, not about exploitation.
+- `Paul Tillich` - Decision is a risk rooted in the courage of being free.
+- `Paul Washer` - The way a woman carries herself and the way she dresses ought to promote the following types of words: modesty, discretion, wisdom, beauty, elegance and refinement, but not sensuality, luxury, extravagance.
+- `Paulo Coelho` - Write your plans in pencil and give God the eraser.
+- `Pema Chödrön` - If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
+- `Pema Chödrön` - It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
+- `Pema Chödrön` - Nothing ever goes away until it has taught us what we need to know.
+- `Pema Chödrön` - The future is completely open, and we are writing it moment to moment.
+- `Pema Chödrön` - The greatest obstacle to connecting with our joy is resentment.
+- `Pema Chödrön` - The truth you believe and cling to makes you unavailable to hear anything new.
+- `Pema Chödrön` - To be fully alive, fully human, and completely awake is to be continually thrown out of the nest.
+- `Pema Chödrön` - When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
+- `Percy Bysshe Shelley` - Fear not for the future, weep not for the past.
+- `Pericles` - Time is the wisest counsellor of all.
+- `Peter Abelard` - The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
+- `Peter Abelard` - The key to wisdom is this - constant and frequent questioning, for by doubting we are led to question and by questioning we arrive at the truth.
+- `Peter Drucker` - Efficiency is doing things right; effectiveness is doing the right things.
+- `Peter Drucker` - Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
+- `Peter Drucker` - The best way to predict your future is to create it.
+- `Peter Drucker` - There is nothing so useless as doing efficiently that which should not be done at all.
+- `Peter Elbow` - Meaning is not what you start with but what you end up with.
+- `Phil Jackson` - Always keep an open mind and a compassionate heart.
+- `Phil Jackson` - Wisdom is always an overmatch for strength.
+- `Philip Sidney` - Either I will find a way, or I will make one.
+- `Phyllis Grissim-Theroux` - Mistakes are the usual bridge between inexperience and wisdom.
+- `Pierre Teilhard de Chardin` - The world is round so that friendship may encircle it.
+- `Pierre-Auguste Renoir` - The pain passes, but the beauty remains.
+- `Plato` - A good decision is based on knowledge and not on numbers.
+- `Plato` - Bodily exercise, when compulsory, does no harm to the body; but knowledge which is acquired under compulsion obtains no hold on the mind.
+- `Plato` - Cunning... is but the low mimic of wisdom.
+- `Plato` - Good actions give strength to ourselves and inspire good actions in others.
+- `Plato` - Knowledge without justice ought to be called cunning rather than wisdom.
+- `Plato` - Love is a serious mental disease.
+- `Plato` - The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.
+- `Plato` - There are three classes of men; lovers of wisdom, lovers of honor, and lovers of gain.
+- `Plato` - Wisdom alone is the science of other sciences.
+- `Plato` - Wise men speak because they have something to say; Fools because they have to say something.
+- `Plato` - Wise men talk because they have something to say; fools, because they have to say something.
+- `Plautus` - Nothing but heaven itself is better than a friend who is really a friend.
+- `Plotinus` - Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.
+- `Plutarch` - I don't need a friend who changes when I change and who nods when I nod; my shadow does that much better.
+- `Plutarch` - Know how to listen, and you will profit even from those who talk badly.
+- `Plutarch` - Silence at the proper season is wisdom, and better than any speech.
+- `Plutarch` - To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
+- `Plutarch` - What we achieve inwardly will change outer reality.
+- `Pope John XXIII` - Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do.
+- `Pope Paul VI` - Never reach out your hand unless you're willing to extend an arm.
+- `Princess Diana` - Only do what your heart tells you.
+- `Publilius Syrus` - A rolling stone gathers no moss.
+- `Publilius Syrus` - Better be ignorant of a matter than half know it.
+- `Publilius Syrus` - Do not turn back when you are just at the goal.
+- `Publilius Syrus` - I have often regretted my speech, never my silence.
+- `Publilius Syrus` - Never promise more than you can perform.
+- `Publilius Syrus` - While we stop to think, we often miss our opportunity.
+- `Rabbi Hillel` - If I am not for myself, who will be for me? If I am not for others, what am I? And if not now, when?
+- `Rabindranath Tagore` - We read the world wrong and say that it deceives us.
+- `Rabindranath Tagore` - You can't cross the sea merely by standing and staring at the water.
+- `Rachel Carson` - If facts are the seeds that later produce knowledge and wisdom, then the emotions and the impressions of the senses are the fertile soil in which the seeds must grow.
+- `Rainer Maria Rilke` - The only journey is the one within.
+- `Ralph Abernathy` - The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition.
+- `Ralph Marston` - Excellence is not a skill. It is an attitude.
+- `Ralph Marston` - Let go of your attachment to being right, and suddenly your mind is more open. You're able to benefit from the unique viewpoints of others, without being crippled by your own judgement.
+- `Ralph Waldo Emerson` - A friend may well be reckoned the masterpiece of nature.
+- `Ralph Waldo Emerson` - A hero is no braver than an ordinary man, but he is braver five minutes longer.
+- `Ralph Waldo Emerson` - A man's growth is seen in the successive choirs of his friends
+- `Ralph Waldo Emerson` - Adopt the pace of nature: her secret is patience.
+- `Ralph Waldo Emerson` - Bad times have a scientific value. These are occasions a good learner would not miss.
+- `Ralph Waldo Emerson` - Before we acquire great power, we must acquire wisdom to use it well.
+- `Ralph Waldo Emerson` - Belief consists in accepting the affirmations of the soul; Unbelief, in denying them.
+- `Ralph Waldo Emerson` - Build a better mousetrap and the world will beat a path to your door.
+- `Ralph Waldo Emerson` - Do not be too timid and squeamish about your reactions. All life is an experiment. The more experiments you make the better.
+- `Ralph Waldo Emerson` - Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
+- `Ralph Waldo Emerson` - Do not go where the path may lead, go instead where there is no path and leave a trail.
+- `Ralph Waldo Emerson` - Do not waste yourself in rejection, nor bark against the bad, but chant the beauty of the good.
+- `Ralph Waldo Emerson` - Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
+- `Ralph Waldo Emerson` - Everything in the universe goes by indirection. There are no straight lines.
+- `Ralph Waldo Emerson` - Friendship, like the immortality of the soul, is too good to be believed.
+- `Ralph Waldo Emerson` - Go put your creed into the deed. Nor speak with double tongue.
+- `Ralph Waldo Emerson` - Good luck is another name for tenacity of purpose.
+- `Ralph Waldo Emerson` - Good thoughts are no better than good dreams, unless they be executed.
+- `Ralph Waldo Emerson` - Great are they who see that spiritual is stronger than any material force, that thoughts rule the world.
+- `Ralph Waldo Emerson` - Happiness is a perfume you cannot pour on others without getting a few drops on yourself.
+- `Ralph Waldo Emerson` - If the single man plant himself indomitably on his instincts, and there abide, the huge world will come round to him.
+- `Ralph Waldo Emerson` - If the stars should appear but one night every thousand years how man would marvel and adore.
+- `Ralph Waldo Emerson` - Imagination is not a talent of some men but is the health of every man.
+- `Ralph Waldo Emerson` - In skating over thin ice our safety is in our speed.
+- `Ralph Waldo Emerson` - It is one of the blessings of old friends that you can afford to be stupid with them.
+- `Ralph Waldo Emerson` - It is only when the mind and character slumber that the dress can be seen.
+- `Ralph Waldo Emerson` - Life is a progress, and not a station.
+- `Ralph Waldo Emerson` - Life is a succession of lessons, which must be lived to be understood.
+- `Ralph Waldo Emerson` - Make the most of yourself, for that is all there is of you.
+- `Ralph Waldo Emerson` - Most of the shadows of life are caused by standing in our own sunshine.
+- `Ralph Waldo Emerson` - Nature and books belong to the eyes that see them.
+- `Ralph Waldo Emerson` - Nature is a mutable cloud which is always and never the same.
+- `Ralph Waldo Emerson` - Nothing great was ever achieved without enthusiasm.
+- `Ralph Waldo Emerson` - Nothing is at last sacred but the integrity of your own mind.
+- `Ralph Waldo Emerson` - Our distrust is very expensive.
+- `Ralph Waldo Emerson` - Our strength grows out of our weaknesses.
+- `Ralph Waldo Emerson` - Self-trust is the first secret of success.
+- `Ralph Waldo Emerson` - Skill to do comes of doing.
+- `Ralph Waldo Emerson` - So is cheerfulness, or a good temper, the more it is spent, the more remains.
+- `Ralph Waldo Emerson` - The invariable mark of wisdom is to see the miraculous in the common.
+- `Ralph Waldo Emerson` - The only way to have a friend is to be one.
+- `Ralph Waldo Emerson` - The sum of wisdom is that time is never lost that is devoted to work.
+- `Ralph Waldo Emerson` - The world makes way for the man who knows where he is going.
+- `Ralph Waldo Emerson` - The years teach much which the days never know.
+- `Ralph Waldo Emerson` - Thought is the blossom; language the bud; action the fruit behind it.
+- `Ralph Waldo Emerson` - To be great is to be misunderstood.
+- `Ralph Waldo Emerson` - Truth, and goodness, and beauty are but different faces of the same all.
+- `Ralph Waldo Emerson` - We aim above the mark to hit the mark.
+- `Ralph Waldo Emerson` - We are wiser than we know.
+- `Ralph Waldo Emerson` - We gain the strength of the temptation we resist.
+- `Ralph Waldo Emerson` - We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.
+- `Ralph Waldo Emerson` - What is a weed? A plant whose virtues have not yet been discovered.
+- `Ralph Waldo Emerson` - What lies behind us and what lies before us are tiny matters compared to what lies within us.
+- `Ralph Waldo Emerson` - Wisdom has its root in goodness, not goodness its root in wisdom.
+- `Ramakrishna` - If you want to go east, don't go west.
+- `Ravi Zacharias` - You can only learn so much from books. You can only learn so much from education. Ultimately, it is the wisdom of God that will carry you through in the toughest situations of life.
+- `Ray Bradbury` - Living at risk is jumping off the cliff and building your wings on the way down.
+- `Reinhold Niebuhr` - The final wisdom of life requires not the annulment of incongruity but the achievement of serenity within and above it.
+- `René Descartes` - Divide each difficulty into as many parts as is feasible and necessary to resolve it.
+- `René Descartes` - It is not enough to have a good mind; the main thing is to use it well.
+- `René Descartes` - The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+- `Richard Bach` - Allow the world to live as it chooses, and allow yourself to live as you choose.
+- `Richard Bach` - Argue for your limitations, and sure enough they're yours.
+- `Richard Bach` - Argue for your limitations, and sure enough they're yours.
+- `Richard Bach` - Ask yourself the secret of your success. Listen to your answer and practice it.
+- `Richard Bach` - Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!
+- `Richard Bach` - Can miles truly separate you from friends... If you want to be with someone you love, aren't you already there?
+- `Richard Bach` - Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
+- `Richard Bach` - Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.
+- `Richard Bach` - Don't turn away from possible futures before you're certain you don't have anything to learn from them.
+- `Richard Bach` - Every gift from a friend is a wish for your happiness.
+- `Richard Bach` - Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
+- `Richard Bach` - Every problem has a gift for you in its hands.
+- `Richard Bach` - Happiness is the reward we get for living to the highest right we know.
+- `Richard Bach` - I gave my life to become the person I am right now. Was it worth it?
+- `Richard Bach` - If you love someone, set them free. If they come back, they're yours; if they don't, they never were.
+- `Richard Bach` - In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
+- `Richard Bach` - In order to win, you must expect to win.
+- `Richard Bach` - Learning is finding out what you already know.
+- `Richard Bach` - Listen to what you know instead of what you fear.
+- `Richard Bach` - Sooner or later, those who win are those who think they can.
+- `Richard Bach` - Strong beliefs win strong men, and then make them stronger.
+- `Richard Bach` - The best way to pay for a lovely moment is to enjoy it.
+- `Richard Bach` - The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
+- `Richard Bach` - The meaning I picked, the one that changed my life: Overcome fear, behold wonder.
+- `Richard Bach` - The simplest things are often the truest.
+- `Richard Bach` - To bring anything into your life, imagine that it's already there.
+- `Richard Bach` - To fly as fast as thought, you must begin by knowing that you have already arrived.
+- `Richard Bach` - What the caterpillar calls the end of the world, the master calls a butterfly.
+- `Richard Bach` - You are always free to change your mind and choose a different future, or a different past.
+- `Richard Bach` - You are never given a wish without also being given the power to make it come true. You may have to work for it, however.
+- `Richard Bach` - You teach best what you most need to learn.
+- `Richard Bach` - Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
+- `Richard Burton` - False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.
+- `Richard Garriott` - Chaos and Order are not enemies, only opposites.
+- `Richard Needham` - Strong people make as many mistakes as weak people. Difference is that strong people admit their mistakes, laugh at them, learn from them. That is how they become strong.
+- `Richard Whately` - It is the neglect of timely repair that makes rebuilding necessary.
+- `Richard Whately` - Lose an hour in the morning, and you will spend all day looking for it.
+- `Rita Mae Brown` - Creativity comes from trust. Trust your instincts. And never hope more than you work.
+- `Robert F. Kennedy` - Only those who dare to fail greatly can ever achieve greatly.
+- `Robert F. Kennedy` - Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+- `Robert Frost` - A poem begins in delight and ends in wisdom.
+- `Robert Frost` - In three words I can sum up everything I've learned about life: it goes on.
+- `Robert Frost` - The best way out is always through.
+- `Robert Fulghum` - If you break your neck, if you have nothing to eat, if your house is on fire, then you got a problem. Everything else is inconvenience.
+- `Robert Fulghum` - Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
+- `Robert Graves` - Intuition is the supra-logic that cuts out all the routine processes of thought and leaps straight from the problem to the answer.
+- `Robert Louis Stevenson` - A friend is a gift you give yourself.
+- `Robert Louis Stevenson` - Don't judge each day by the harvest you reap but by the seeds that you plant.
+- `Robert Louis Stevenson` - Marriage: A friendship recognized by the police.
+- `Robert Louis Stevenson` - Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
+- `Robert Louis Stevenson` - There is no duty we so underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.
+- `Robert Louis Stevenson` - To be what we are, and to become what we are capable of becoming, is the only end of life.
+- `Robert M. Pirsig` - Technology presumes there's just one right way to do things and there never is.
+- `Robert M. Pirsig` - The only Zen you find on the tops of mountains is the Zen you bring up there.
+- `Robert M. Pirsig` - The place to improve the world is first in one's own heart and head and hands.
+- `Robert Schuller` - Failure doesn't mean you are a failure it just means you haven't succeeded yet.
+- `Robert Schuller` - I'd rather attempt to do something great and fail than to attempt to do nothing and succeed.
+- `Robert Schuller` - Spectacular achievement is always preceded by unspectacular preparation.
+- `Robert Southey` - It is with words as with sunbeams. The more they are condensed, the deeper they burn.
+- `Robert Southey` - No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.
+- `Rollo May` - If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+- `Rose Kennedy` - I know not age, nor weariness nor defeat.
+- `Rowan Williams` - And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.
+- `Rudolf Arnheim` - All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.
+- `Rumi` - Everyone has been made for some particular work, and the desire for that work has been put in every heart.
+- `Rumi` - Grief can be the garden of compassion. If you keep your heart open through everything, your pain can become your greatest ally in your life's search for love and wisdom.
+- `Rumi` - Let the beauty of what you love be what you do.
+- `Rumi` - Let yourself be silently drawn by the stronger pull of what you really love.
+- `Rumi` - Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.
+- `Sai Baba` - All action results from thought, so it is thoughts that matter.
+- `Sai Baba` - What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
+- `Salman Rushdie` - Friendships are the family we make - not the one we inherit. I've always been someone to whom friendship, elective affinities, is as important as family.
+- `Sam Ewing` - Computers are like bikinis. They save people a lot of guesswork.
+- `Sam Keen` - We come to love not by finding a perfect person, but by learning to see an imperfect person perfectly.
+- `Sam Levenson` - It's so simple to be wise. Just think of something stupid to say and then don't say it.
+- `Sam Rayburn` - No one has a finer command of language than the person who keeps his mouth shut.
+- `Sam Walton` - Swim upstream. Go the other way. Ignore the conventional wisdom.
+- `Sammy Davis Jr.` - You always have two choices: your commitment versus your fear.
+- `Samuel Beckett` - Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.
+- `Samuel Butler` - Friendship is like money, easier made than kept.
+- `Samuel Johnson` - Friendship, like love, is destroyed by long absence, though it may be increased by short intermissions.
+- `Samuel Johnson` - If a man does not make new acquaintances as he advances through life, he will soon find himself left alone. A man, sir, should keep his friendship in a constant repair.
+- `Samuel Johnson` - Love is the wisdom of the fool and the folly of the wise.
+- `Samuel Johnson` - Memory is the mother of all wisdom.
+- `Samuel Johnson` - To keep your secret is wisdom; but to expect others to keep it is folly.
+- `Samuel Richardson` - Marriage is the highest state of friendship. If happy, it lessens our cares by dividing them, at the same time that it doubles our pleasures by mutual participation.
+- `Samuel Taylor Coleridge` - Imagination is the living power and prime agent of all human perception.
+- `Samuel Taylor Coleridge` - Love is flower like; Friendship is like a sheltering tree.
+- `Satchel Paige` - Don't look back. Something might be gaining on you.
+- `Satchel Paige` - Work like you don't need the money. Love like you've never been hurt. Dance like nobody's watching.
+- `Saul Alinsky` - As an organizer I start from where the world is, as it is, not as I would like it to be.
+- `Seneca the Younger` - Begin at once to live and count each separate day as a separate life.
+- `Seneca the Younger` - Friendship always benefits; love sometimes injures.
+- `Seneca the Younger` - If one does not know to which port is sailing, no wind is favorable.
+- `Seneca the Younger` - Luck is what happens when preparation meets opportunity.
+- `Seneca the Younger` - Most powerful is he who has himself in his own power.
+- `Seneca the Younger` - No man was ever wise by chance.
+- `Seneca the Younger` - One of the most beautiful qualities of true friendship is to understand and to be understood.
+- `Seneca the Younger` - The conditions of conquest are always easy. We have but to toil awhile, endure awhile, believe always, and never turn back.
+- `Seneca the Younger` - The greatest remedy for anger is delay.
+- `Seneca the Younger` - The mind unlearns with difficulty what it has long learned.
+- `Seneca the Younger` - There is no great genius without some touch of madness.
+- `Seneca the Younger` - Things that were hard to bear are sweet to remember.
+- `Shakti Gawain` - The more light you allow within you, the brighter the world you live in will be.
+- `Shirley MacLaine` - Fear makes strangers of people who would be friends.
+- `Sidney Hook` - Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+- `Sigmund Freud` - Being entirely honest with oneself is a good exercise.
+- `Sigmund Freud` - From error to error one discovers the entire truth.
+- `Sigmund Freud` - It is impossible to escape the impression that people commonly use false standards of measurement — that they seek power, success and wealth for themselves and admire them in others, and that they underestimate what is of true value in life.
+- `Sigmund Freud` - The most complicated achievements of thought are possible without the assistance of consciousness.
+- `Simon Mainwaring` - Technology is teaching us to be human again.
+- `Simon Sinek` - The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
+- `Simone Weil` - I can, therefore I am.
+- `Simone Weil` - Liberty, taking the word in its concrete sense, consists in the ability to choose.
+- `Simone de Beauvoir` - Change your life today. Don't gamble on the future, act now, without delay.
+- `Simone de Beauvoir` - One's life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.
+- `Socrates` - Be as you wish to seem.
+- `Socrates` - The greatest way to live with honor in this world is to be what we pretend to be.
+- `Socrates` - The greatest way to live with honor in this world is to be what we pretend to be.
+- `Socrates` - Wisdom begins in wonder.
+- `Sogyal Rinpoche` - We must never forget that it is through our actions, words, and thoughts that we have a choice.
+- `Sojourner Truth` - Truth is powerful and it prevails.
+- `Sophocles` - A short saying often contains much wisdom.
+- `Sophocles` - If you were to offer a thirsty man all wisdom, you would not please him more than if you gave him a drink.
+- `Sophocles` - Ignorant men don't know what good they hold in their hands until they've flung it away.
+- `Sophocles` - Men of perverse opinion do not know the excellence of what is in their hands, till someone dash it from them.
+- `Sophocles` - Much wisdom often goes with fewer words.
+- `Sophocles` - Much wisdom often goes with fewest words.
+- `Sophocles` - Numberless are the worlds wonders, but none more wonderful than man.
+- `Sophocles` - Quick decisions are unsafe decisions.
+- `Sophocles` - Wisdom is the supreme part of happiness.
+- `Sophocles` - You win the victory when you yield to friends.
+- `Sri Chinmoy` - Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
+- `Stephen Covey` - We are not animals. We are not a product of what has happened to us in our past. We have the power of choice.
+- `Stephen Hawking` - Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.
+- `Stephen King` - Get busy living or get busy dying.
+- `Steve Jobs` - Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
+- `Steven Van Zandt` - Rock n' roll as a genre is different from pop and hip hop: it is about bands, and that for me suggests brotherhood, family, friendship and community.
+- `Stewart Brand` - Once a new technology rolls over you, if you're not part of the steamroller, you're part of the road.
+- `Sun Tzu` - Can you imagine what I would do if I could do all I can?
+- `Sun Tzu` - The supreme art of war is to subdue the enemy without fighting.
+- `Sun Tzu` - You have to believe in yourself.
+- `Susan B. Anthony` - Independence is happiness.
+- `Susan Orlean` - I don't turn to greeting cards for wisdom and advice, but they are a fine reflection of the general drift of the culture.
+- `Swami Vivekananda` - Take up one idea. Make that one idea your life - think of it, dream of it, live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success.
+- `Swami Vivekananda` - We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.
+- `Sydney J. Harris` - The real danger is not that computers will begin to think like men, but that men will begin to think like computers.
+- `Søren Kierkegaard` - Life is not a problem to be solved, but a reality to be experienced.
+- `Søren Kierkegaard` - Once you label me you negate me.
+- `Søren Kierkegaard` - To dare is to lose ones footing momentarily. To not dare is to lose oneself.
+- `Teresa of Ávila` - All things must come to the soul from its roots, from where it is planted.
+- `Theodore H. White` - To go against the dominant thinking of your friends, of most of the people you see every day, is perhaps the most difficult act of heroism you can perform.
+- `Theodore Isaac Rubin` - Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
+- `Theodore Roosevelt` - Believe you can and you're halfway there.
+- `Theodore Roosevelt` - Keep your eyes on the stars and your feet on the ground.
+- `Theodore Roosevelt` - Nine-tenths of wisdom is being wise in time.
+- `Theophrastus` - Time is the most valuable thing a man can spend.
+- `Thomas Aquinas` - Friendship is the source of the greatest pleasures, and without friends even the most agreeable pursuits become tedious.
+- `Thomas Aquinas` - There is nothing on this earth more to be prized than true friendship.
+- `Thomas Carlyle` - By nature, man hates change; seldom will he quit his old home till it has actually fallen around his ears.
+- `Thomas Carlyle` - Do not be embarrassed by your mistakes. Nothing can teach us better than our understanding of them. This is one of the best ways of self-education.
+- `Thomas Carlyle` - Instead of saying that man is the creature of circumstance, it would be nearer the mark to say that man is the architect of circumstance.
+- `Thomas Carlyle` - Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
+- `Thomas Carlyle` - Silence is deep as Eternity; Speech is shallow as Time.
+- `Thomas Carlyle` - This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.
+- `Thomas Dewar` - Minds are like parachutes. They only function when open.
+- `Thomas Edison` - Genius is one percent inspiration and ninety-nine percent perspiration.
+- `Thomas Edison` - I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.
+- `Thomas Edison` - I have not failed. I've just found 10,000 ways that won't work.
+- `Thomas Edison` - If we did the things we are capable of, we would astound ourselves.
+- `Thomas Edison` - Just because something doesn't do what you planned it to do doesn't mean it's useless.
+- `Thomas Edison` - Many of life's failures are people who did not realize how close they were to success when they gave up.
+- `Thomas Edison` - Opportunity is missed by most because it is dressed in overalls and looks like work.
+- `Thomas Edison` - Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
+- `Thomas Edison` - The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary.
+- `Thomas Edison` - The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
+- `Thomas Fuller` - An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+- `Thomas Fuller` - If you have one true friend, you have more than your share.
+- `Thomas Fuller` - No garden is without its weeds.
+- `Thomas Hardy` - Time changes everything except something within us which is always surprised by change.
+- `Thomas Haynes Bayly` - Absence makes the heart grow fonder.
+- `Thomas Hobbes` - It is not wisdom but Authority that makes a law.
+- `Thomas J. Watson` - Wisdom is the power to put our time and our knowledge to the proper use.
+- `Thomas Jefferson` - But friendship is precious, not only in the shade, but in the sunshine of life, and thanks to a benevolent arrangement the greater part of life is sunshine.
+- `Thomas Jefferson` - Do you want to know who you are? Don't ask. Act! Action will delineate and define you.
+- `Thomas Jefferson` - Don't talk about what you have done or what you are going to do.
+- `Thomas Jefferson` - Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?
+- `Thomas Jefferson` - Honesty is the first chapter in the book of wisdom.
+- `Thomas Jefferson` - I hope our wisdom will grow with our power, and teach us, that the less we use our power the greater it will be.
+- `Thomas Jefferson` - I never considered a difference of opinion in politics, in religion, in philosophy, as cause for withdrawing from a friend.
+- `Thomas Jefferson` - I'm a great believer in luck and I find the harder I work, the more I have of it.
+- `Thomas Jefferson` - Never put off till tomorrow what you can do today.
+- `Thomas Jefferson` - Reason and free inquiry are the only effectual agents against error.
+- `Thomas Paine` - A long habit of not thinking a thing wrong gives it a superficial appearance of being right.
+- `Thomas Paine` - The World is my country, all mankind are my brethren, and to do good is my religion.
+- `Thomas Paine` - The most formidable weapon against errors of every kind is reason.
+- `Thomas à Kempis` - Be not angry that you cannot make others as you wish them to be, since you cannot make yourself as you wish to be.
+- `Thornton Wilder` - We can only be said to be alive in those moments when our hearts are conscious of our treasures.
+- `Thích Nhất Hạnh` - By living deeply in the present moment we can understand the past better and we can prepare for a better future.
+- `Thích Nhất Hạnh` - If we are not fully ourselves, truly in the present moment, we miss everything.
+- `Thích Nhất Hạnh` - May our hearts garden of awakening bloom with hundreds of flowers.
+- `Thích Nhất Hạnh` - Smile, breathe and go slowly.
+- `Thích Nhất Hạnh` - Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
+- `Thích Nhất Hạnh` - The amount of happiness that you have depends on the amount of freedom you have in your heart.
+- `Thích Nhất Hạnh` - The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
+- `Thích Nhất Hạnh` - There is no way to happiness, happiness is the way.
+- `Thích Nhất Hạnh` - To be beautiful means to be yourself. You don't need to be accepted by others. You need to accept yourself.
+- `Tom Hodgkinson` - All of our technology is completely unnecessary to a happy life.
+- `Tom Krause` - There are no failures. Just experiences and your reactions to them.
+- `Tom Lehrer` - Life is like a sewer. What you get out of it depends on what you put into it.
+- `Tom Peters` - Formula for success: under promise and over deliver.
+- `Toni Morrison` - If you surrender to the wind, you can ride it.
+- `Tony Blair` - Sometimes it is better to lose and do the right thing than to win and do the wrong thing.
+- `Tony Robbins` - If you do what you've always done, you'll get what you've always gotten.
+- `Tony Robbins` - It is in your moments of decision that your destiny is shaped.
+- `Tony Robbins` - Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more
+- `Tony Robbins` - People are not lazy. They simply have impotent goals - that is, goals that do not inspire them.
+- `Tony Robbins` - Setting goals is the first step in turning the invisible into the visible.
+- `Tony Robbins` - Stay committed to your decisions, but stay flexible in your approach.
+- `Tony Robbins` - Successful people ask better questions, and as a result, they get better answers.
+- `Tony Robbins` - The only limit to your impact is your imagination and commitment.
+- `Tony Robbins` - The path to success is to take massive, determined action.
+- `Tony Robbins` - The way we communicate with others and with ourselves ultimately determines the quality of our lives.
+- `Tony Robbins` - To effectively communicate, we must realize that we are all different in the way we perceive the world and use this understanding as a guide to our communication with others.
+- `Tony Robbins` - Using the power of decision gives you the capacity to get past any excuse to change any and every part of your life in an instant.
+- `Tony Robbins` - We can change our lives. We can do, have, and be exactly what we wish.
+- `Tony Robbins` - Whatever happens, take responsibility.
+- `Tony Robbins` - When people are like each other they tend to like each other.
+- `Tony Robbins` - You always succeed in producing a result.
+- `Torquato Tasso` - The day of fortune is like a harvest day, we must be busy when the corn is ripe.
+- `Tryon Edwards` - He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.
+- `Uta Hagen` - We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre.
+- `Vernon Cooper` - These days people seek knowledge, not wisdom. Knowledge is of the past; wisdom is of the future.
+- `Vernor Vinge` - So much technology, so little talent.
+- `Victor Hugo` - An invasion of armies can be resisted, but not an idea whose time has come.
+- `Victor Hugo` - Life is the flower for which love is the honey.
+- `Victoria Osteen` - I think that we have a great opportunity to impart our wisdom and our knowledge and our experience to this younger generation. It may be different times, but experience transcends time, and wisdom transcends time.
+- `Viktor Frankl` - When we are no longer able to change a situation - we are challenged to change ourselves.
+- `Vince Lombardi` - If you'll not settle for anything less than your best, you will be amazed at what you can accomplish in your lives.
+- `Vince Lombardi` - Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
+- `Vince Lombardi` - The spirit, the will to win, and the will to excel, are the things that endure. These qualities are so much more important than the events that occur.
+- `Virgil` - Fortune favors the brave.
+- `Virgil` - They can conquer who believe they can.
+- `Virgil` - They can do all because they think they can.
+- `Virginia Woolf` - Some people go to priests; others to poetry; I to my friends.
+- `Volker Grassmuck` - The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+- `Voltaire` - Friendship is the marriage of the soul, and this marriage is liable to divorce.
+- `Voltaire` - God gave us the gift of life; it is up to us to give ourselves the gift of living well.
+- `Voltaire` - Meditation is the dissolution of thoughts in eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.
+- `Voltaire` - No snowflake in an avalanche ever feels responsible.
+- `Voltaire` - The longer we dwell on our misfortunes, the greater is their power to harm us.
+- `Voltaire` - Think for yourselves and let others enjoy the privilege to do so too.
+- `Voltaire` - To enjoy life, we must touch much of it lightly.
+- `Voltaire` - We never live; we are always in the expectation of living.
+- `Vusi Mahlasela` - If you are bitter, you are like a dry leaf that you can just squash, and you can get blown away by the wind. There is much more wisdom in forgiveness.
+- `Václav Havel` - Work for something because it is good, not just because it stands a chance to succeed.
+- `W. Clement Stone` - No matter how carefully you plan your goals they will never be more that pipe dreams unless you pursue them with gusto.
+- `W. Clement Stone` - When you discover your mission, you will feel its demand. It will fill you with enthusiasm and a burning desire to get to work on it.
+- `W. Clement Stone` - You are a product of your environment. So choose the environment that will best develop you toward your objective. Analyze your life in terms of its environment. Are the things around you helping you toward success - or are they holding you back?
+- `W. H. Auden` - To choose what is difficult all one's days, as if it were easy, that is faith.
+- `Walt Disney` - All our dreams can come true, if we have the courage to pursue them.
+- `Walt Disney` - If you can dream it, you can do it.
+- `Walt Disney` - The more you like yourself, the less you are like anyone else, which makes you unique.
+- `Walt Disney` - We've got to have a dream if we are going to make a dream come true.
+- `Walt Whitman` - I have learned that to be with those I like is enough.
+- `Walt Whitman` - Keep your face always toward the sunshine - and shadows will fall behind you.
+- `Walter Benjamin` - The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
+- `Walter Benjamin` - To be happy is to be able to become aware of oneself without fright.
+- `Walter Cronkite` - I can't imagine a person becoming a success who doesn't give this game of life everything he's got.
+- `Walter Inglis Anderson` - Nothing diminishes anxiety faster than action.
+- `Walter Lippmann` - Ideals are an imaginative understanding of that which is desirable in that which is possible.
+- `Walter Lippmann` - It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
+- `Walter Lippmann` - Where all think alike, no one thinks very much.
+- `Walter Scott` - O, what a tangled web we weave when first we practice to deceive!
+- `Walter Winchell` - A real friend is one who walks in when the rest of the world walks out.
+- `Washington Irving` - Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
+- `Washington Irving` - Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.
+- `Wayne Dyer` - Anything you really want, you can attain, if you really go after it.
+- `Wayne Dyer` - Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.
+- `Wayne Dyer` - Doing what you love is the cornerstone of having abundance in your life.
+- `Wayne Dyer` - Everything you are against weakens you. Everything you are for empowers you.
+- `Wayne Dyer` - Go for it now. The future is promised to no one.
+- `Wayne Dyer` - I cannot always control what goes on outside. But I can always control what goes on inside.
+- `Wayne Dyer` - I think and that is all that I am.
+- `Wayne Dyer` - If you change the way you look at things, the things you look at change.
+- `Wayne Dyer` - Maxim for life: You get treated in life the way you teach people to treat you.
+- `Wayne Dyer` - Miracles come in moments. Be ready and willing.
+- `Wayne Dyer` - Our intention creates our reality.
+- `Wayne Dyer` - Our lives are a sum total of the choices we have made.
+- `Wayne Dyer` - Real magic in relationships means an absence of judgement of others.
+- `Wayne Dyer` - Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
+- `Wayne Dyer` - There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.
+- `Wayne Dyer` - There is no way to prosperity, prosperity is the way.
+- `Wayne Dyer` - We are Divine enough to ask and we are important enough to receive.
+- `Wayne Dyer` - What we think determines what happens to us, so if we want to change our lives, we need to stretch our minds.
+- `Wayne Dyer` - When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
+- `Wayne Dyer` - When you judge another, you do not define them, you define yourself.
+- `Wayne Dyer` - You are important enough to ask and you are blessed enough to receive back.
+- `Wayne Dyer` - You can't choose up sides on a round world.
+- `Wayne Dyer` - You cannot be lonely if you like the person you're alone with.
+- `Wayne Dyer` - You'll see it when you believe it.
+- `Whoopi Goldberg` - Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
+- `Will Durant` - Science gives us knowledge, but only philosophy can give us wisdom.
+- `Will Durant` - The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
+- `Will Rogers` - Even if you're on the right track, you'll get run over if you just sit there.
+- `Will Rogers` - Good judgment comes from experience, and a lot of that comes from bad judgment.
+- `Will Rogers` - If you find yourself in a hole, the first thing to do is stop digging.
+- `Will Rogers` - You've got to go out on a limb sometimes because that's where the fruit is.
+- `Willa Cather` - Where there is great love, there are always miracles.
+- `William Arthur Ward` - Adversity causes some men to break, others to break records.
+- `William Arthur Ward` - Do more than dream: work.
+- `William Arthur Ward` - Four steps to achievement: Plan purposefully. Prepare prayerfully. Proceed positively. Pursue persistently.
+- `William Arthur Ward` - The pessimist complains about the wind; the optimist expects it to change; the realist adjusts the sails.
+- `William Arthur Ward` - When we seek to discover the best in others, we somehow bring out the best in ourselves.
+- `William Blake` - For everything that lives is holy, life delights in life.
+- `William Blake` - In seed time learn, in harvest teach, in winter enjoy.
+- `William Blake` - The hours of folly are measured by the clock; but of wisdom, no clock can measure.
+- `William Blake` - The road of excess leads to the palace of wisdom.
+- `William Blake` - Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.
+- `William Burroughs` - Your mind will answer most questions if you learn to relax and wait for the answer.
+- `William Butler Yeats` - There are no strangers here; Only friends you haven't yet met.
+- `William Butler Yeats` - Think as a wise man but communicate in the language of the people.
+- `William C. Menninger` - A true friend freely, advises justly, assists readily, adventures boldly, takes all patiently, defends courageously, and continues a friend unchangeably.
+- `William C. Menninger` - He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.
+- `William C. Menninger` - Six essential qualities that are the key to success: Sincerity, personal integrity, humility, courtesy, wisdom, charity.
+- `William Cowper` - Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
+- `William Ellery Channing` - Difficulties are meant to rouse, not discourage. The human spirit is to grow strong by conflict.
+- `William Ellery Channing` - Error is discipline through which we advance.
+- `William Ellery Channing` - Every man is a volume if you know how to read him.
+- `William Hazlitt` - Just as much as we see in others, we have in ourselves.
+- `William Hurt` - The problem with Google is you have 360 degrees of omnidirectional information on a linear basis, but the algorithms for irony and ambiguity are not there. And those are the algorithms of wisdom.
+- `William Inge` - Nature takes away any faculty that is not used.
+- `William James` - Act as if what you do makes a difference. It does.
+- `William James` - The deepest craving of human nature is the need to be appreciated.
+- `William James` - The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
+- `William James` - To change one's life, start immediately, do it flamboyantly, no exceptions.
+- `William Lyon Phelps` - This is the final test of a gentleman: his respect for those who can be of no possible value to him.
+- `William Penn` - True silence is the rest of the mind; it is to the spirit what sleep is to the body, nourishment and refreshment.
+- `William Saroyan` - Good people are good because they've come to wisdom through failure. We get very little wisdom from success, you know.
+- `William Shakespeare` - Action is eloquence.
+- `William Shakespeare` - All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.
+- `William Shakespeare` - Be great in act, as you have been in thought.
+- `William Shakespeare` - Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.
+- `William Shakespeare` - Go to your bosom: Knock there and ask your heart what it doth know.
+- `William Shakespeare` - God has given you one face, and you make yourself another.
+- `William Shakespeare` - Having nothing, nothing can he lose.
+- `William Shakespeare` - He that is giddy thinks the world turns round.
+- `William Shakespeare` - How far that little candle throws its beams! So shines a good deed in a naughty world.
+- `William Shakespeare` - It is not in the stars to hold our destiny but in ourselves.
+- `William Shakespeare` - Love all, trust a few, do wrong to none.
+- `William Shakespeare` - Speak low, if you speak love.
+- `William Shakespeare` - To climb steep hills requires a slow pace at first.
+- `William Shakespeare` - We know what we are but know not what we may be.
+- `William Sloane Coffin` - Hope arouses, as nothing else can arouse, a passion for the possible.
+- `William Wordsworth` - Wisdom is oftentimes nearer when we stoop than when we soar.
+- `Wilson Mizner` - To profit from good advice requires more wisdom than to give it.
+- `Winifred Holtby` - The things that one most wants to do are the things that are probably most worth doing.
+- `Winston Churchill` - Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
+- `Winston Churchill` - Continuous effort - not strength or intelligence - is the key to unlocking our potential.
+- `Winston Churchill` - Courage is going from failure to failure without losing enthusiasm.
+- `Winston Churchill` - Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.
+- `Winston Churchill` - History will be kind to me for I intend to write it.
+- `Winston Churchill` - I never worry about action, but only inaction.
+- `Winston Churchill` - Never, never, never give up.
+- `Winston Churchill` - Short words are best and the old words when short are best of all.
+- `Winston Churchill` - Success is not final; failure is not fatal: it is the courage to continue that counts.
+- `Winston Churchill` - The pessimist sees difficulty in every opportunity. The optimist sees the opportunity in every difficulty.
+- `Winston Churchill` - The price of greatness is responsibility.
+- `Winston Churchill` - We make a living by what we get, but we make a life by what we give.
+- `Winston Churchill` - You have enemies? Good. That means you've stood up for something, sometime in your life.
+- `Wolfgang Amadeus Mozart` - Neither a lofty degree of intelligence nor imagination nor both together go to the making of genius. Love, love, love, that is the soul of genius.
+- `Woodrow Wilson` - You are not here merely to make a living. You are here in order to enable the world to live more amply, with greater vision, with a finer spirit of hope and achievement. You are here to enrich the world, and you impoverish yourself if you forget the errand.
+- `Woody Allen` - Eighty percent of success is showing up.
+- `Woody Allen` - Eternal nothingness is fine if you happen to be dressed for it.
+- `Woody Allen` - His lack of education is more than compensated for by his keenly developed moral bankruptcy.
+- `Woody Allen` - How is it possible to find meaning in a finite world, given my waist and shirt size?
+- `Woody Allen` - I can't listen to that much Wagner. I start getting the urge to conquer Poland.
+- `Woody Allen` - I don't want to achieve immortality through my work... I want to achieve it through not dying.
+- `Woody Allen` - I took a speed-reading course and read 'War and Peace' in twenty minutes. It involves Russia.
+- `Woody Allen` - I was thrown out of college for cheating on the metaphysics exam; I looked into the soul of the boy sitting next to me.
+- `Woody Allen` - I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.
+- `Woody Allen` - If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.
+- `Woody Allen` - Interestingly, according to modern astronomers, space is finite. This is a very comforting thought-- particularly for people who can never remember where they have left things.
+- `Woody Allen` - It is impossible to experience one's death objectively and still carry a tune.
+- `Woody Allen` - It seemed the world was divided into good and bad people. The good ones slept better... while the bad ones seemed to enjoy the waking hours much more.
+- `Woody Allen` - Life is divided into the horrible and the miserable.
+- `Yogi Berra` - Life is a learning experience, only if you learn.
+- `Yogi Berra` - You can observe a lot just by watching.
+- `Yogi Berra` - You got to be careful if you don't know where you're going, because you might not get there.
+- `Yoko Ono` - Sometimes I am happy and sometimes not. I am, after all, a human being, you know. And I am glad that we are sometimes happy and sometimes not. You get your wisdom working by having different emotions.
+- `Yolanda Hadid` - I have learned that friendship isn't about who you've known the longest, it's about who came and never left your side.
+- `Zhuang Zhou` - Flow with whatever is happening and let your mind be free. Stay centered by accepting whatever you are doing. This is the ultimate.
+- `Zhuang Zhou` - When deeds and words are in accord, the whole world is transformed.
+- `Zig Ziglar` - Positive thinking will let you do everything better than negative thinking will.
+- `Zig Ziglar` - Remember that failure is an event, not a person.
+- `Zig Ziglar` - What you get by achieving your goals is not as important as what you become by achieving your goals.
+- `Zig Ziglar` - You are the only person on earth who can use your ability.
+- `Zig Ziglar` - Your attitude, not your aptitude, will determine your altitude.
